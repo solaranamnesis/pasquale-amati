@@ -55,3 +55,7 @@ Quod post duas de flumine Rubicone
 ## Caput 2.
 
 ...
+
+## Appendix de antiqua et nupera Purpura Dissertatio Johannis Baptistae Capellii veneti pharmacopolae.
+
+...
