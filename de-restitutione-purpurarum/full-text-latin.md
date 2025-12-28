@@ -10,7 +10,7 @@
 
 # De Restitutione Purpurarum.
 
-### Tertio editum, emendatum, et auctum.
+### Tertio editum, emendatum, et auctum
 
 ## Paschalis Amatius
 
