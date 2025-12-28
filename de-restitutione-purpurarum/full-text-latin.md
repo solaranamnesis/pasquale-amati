@@ -32,24 +32,26 @@
 
 ---
 
-# [Caput 1.]()
+## [Caput 1.]()
 
-# [Caput 2.]()
+## [Caput 2.]()
 
 ---
 
-### Amplissime
+#### Amplissime
 
-## Ravennatium Senator.
+### Ravennatium Senator.
 
 Quod post duas de flumine Rubicone 
 
 ...
 
-# Caput 1.
+# Paschalis Amatii sabinianensis de Restitutione Purpurarum Liber.
+
+## Caput 1.
 
 ...
 
-# Caput 2.
+## Caput 2.
 
 ...
