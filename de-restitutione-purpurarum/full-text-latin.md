@@ -160,16 +160,7 @@ Plinius idem lib. 21. cap. 6.: _Violis honos proximus. Earum plura genera; purpu
 
 _Coccina famosae donas et janthina moechae._
 
-Similis erat etiam tertius iste simplex purpureus color amethysto, quae 
-gemma est violaceo colore affatim perfusa. Plinius non tantum citato loco, sed 
-etiam lib. 37. cap. 19. _Alius ex hoc ordo purpureus dabitur, et ab illis 
-descendentibus. Principatum amethysti Indicae tenent... Caussam nomi- 
-nis afferunt, quod usque ad vini colorem accedens, prius quam eum degustet, in 
-violam desinat, fulgorque quidam in illa sit purpurae, non ex toto igneus, sed in 
-vini colorem deficiens. Perlucent autem omnes violaceo colore. Indicae absolutum 
-felicis purpurae colorem habent, ad hancque tingentium officinae dirigunt vota._ 
-Hinc ipse color purpureus violaceus vocabatur etiam amethystinus, amethystinae- 
-que vocabantur illae vestes, quae hoc colore violaceo tingerentur. Juvenalis Sat. 7.
+Similis erat etiam tertius iste simplex purpureus color amethysto, quae gemma est violaceo colore affatim perfusa. Plinius non tantum citato loco, sed etiam lib. 37. cap. 19. _Alius ex hoc ordo purpureus dabitur, et ab illis descendentibus. Principatum amethysti Indicae tenent... Caussam nominis afferunt, quod usque ad vini colorem accedens, prius quam eum degustet, in violam desinat, fulgorque quidam in illa sit purpurae, non ex toto igneus, sed in vini colorem deficiens. Perlucent autem omnes violaceo colore. Indicae absolutum felicis purpurae colorem habent, ad hancque tingentium officinae dirigunt vota._ Hinc ipse color purpureus violaceus vocabatur etiam amethystinus, amethystinaeque vocabantur illae vestes, quae hoc colore violaceo tingerentur. Juvenalis Sat. 7.
 
 &emsp;&emsp;&emsp;&emsp;&emsp;&emsp;_Purpura spondet_  
 _Caussidicum, spondent amethystina._  
