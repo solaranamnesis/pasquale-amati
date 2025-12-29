@@ -91,7 +91,7 @@ _Te nec Amyclaeo decuit livere veneno._ Statius lib. 1. Silvarum:
 _Oebalis, et Tyrii moderator livet aheni._ Horatius lib. 2. Ode 5.  
 &emsp;&emsp;&emsp;&emsp;&emsp;&emsp;_Jam tibi lividos_  
 _Distinguit autumnus racemos_  
-_Purpureo varius colore.
+_Purpureo varius colore._
 
 Purpura quaedam apud antiquos in laude erat, quae Ferrugo ab ipsis appellaretur. Virgilius Aeneidos lib. 9.:
 
