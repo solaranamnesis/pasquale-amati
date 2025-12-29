@@ -141,8 +141,8 @@ _remis vada livida verrunt._
 
 Et uti Catullus Carm. 18. lividissimas Benaci aquas nuncupavit:
 
-_Verum totius ut lacus, putidaeque paludis_
-_Lividissima, maximeque est profunda vorago.
+_Verum totius ut lacus, putidaeque paludis_  
+_Lividissima, maximeque est profunda vorago._
 
 ## Caput 4.
 
@@ -152,7 +152,7 @@ Color tertius purpureus simplex erat violaceus. Vitruvius eodem citato loco. _Qu
 
 _Lana Tarentino violas imitata veneno._  
 &emsp;&emsp;&emsp;&emsp;&emsp;&emsp;Venantius Fortunatus Poem. 7. lib. 7.  
-_Aureus ordo crocis, violis hinc blatteus exit._
+_Aureus ordo crocis, violis hinc blatteus exit._  
 &emsp;&emsp;&emsp;&emsp;&emsp;&emsp;Idem Fortunatus Poem. 8. lib. 7.  
 _Purpura per violas, aurea forma crocus._
 
