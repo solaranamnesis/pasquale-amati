@@ -182,6 +182,49 @@ _Fecere agricolae, facilis quaerentibus herba._
 _Aureus ipse, sed in foliis, quae plurima circum_  
 _Funduntur, violae sublucet purpura nigrae._
 
+## Caput 5.
+
+_De colore simplici purpureo rubido Tyrio._
+
+Quartus purpureus color simplex rubidus erat, nimirum ruber nigritie multa 
+mixtus. Plinius lib. 21. cap. 8. _Alium (colorem) in purpuris Ty- 
+riis, dibaphisque et Laconicis._ Jam vero hae purpurae Tyriae et Laconicae rubi- 
+dae erant, et rubidis floribus papaverum concolores. Manilius Astronomicon lib. 5. 
+
+_Liliaque, et Tyrias imitata papavera luces._
+
+Nec non etiam rubido sanguini concreto, rubidisque rosis, quas _Damascenas_ vocant, similes erant. Plinius ipse lib. 9. cap. 36. _Purpurae florem illum tingendis expetitum vestibus in mediis habent faucibus. Liquoris hic minimi est in candida vena, unde pretiosus ille bibitur nigrantis rosae color sublucens... Color sanguinis concreti nigricans aspectu, idemque suspectu refulgens... Rorem eum excipientes Tyrii. Praecipuus hic Asiae, in Meninge Africae, et Gaetulo littore Oceani, in Laconica Europae._ Hinc Cassiodorus lib. 1. epist. 2. emphatice hunc colorem purpureum rubidum, obscuritatem rubentem, et nigredinem sanguineam vocat. _Color nimio lepore vernans, obscuritas rubens, nigredo sanguinea regnantem discernit, dominum conspicuum facit, et praestat humano generi, ne de conspectu principis possit errari._
+
+Rubida etiam sunt mora matura, et ideo ad purpureum hunc colorem rubidum significandum, quem clare promunt, purpurea mora ipsa vocata fuerunt ab Ovidio Metamorphoseon lib. 4., quo loco enarrat sanguinem Pyrami et Thisbes rubido suo colore mora ipsa infecisse.
+
+_Arborei foetus aspergine caedis in atram_  
+_Vertuntur faciem, madefactaque sanguine radix_  
+_Purpureo tingit pendentia mora colore..._  
+_Signa tene caedis, pullosque et luctibus aptos_  
+_Semper habe foetus gemini monumenta cruoris..._  
+_Vota tamen tetigere Deos, tetigere parentes,_  
+_Nam color in pomo est, ubi permaturuit, ater._
+
+Uvas quoque nigras non aliter quam uvas purpureas vocavere antiqui homines, hac ipsa significatione rubidi coloris, quem apprime ostentant. Virgilius lib. 2. Georgicon. _Uvae purpureae._ Horatius Ode 2. Epodon.
+
+_Certantem et uvam purpurae._  
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;Ovidius lib. 4. Metamorphoseon.  
+_Purpura fulgorem pictis accommodat uvis._  
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;Et lib. 8.  
+_Et de purpureis collectae vitibus uvae._  
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;Et denique lib. 13.  
+_Sunt auro similes longis in vitibus uvae._  
+_Sunt et purpurae. Tibi et has servamus et illas._  
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;Plinius lib. 14. cap. 2.
+
+_Hic (vites) purpureo lucent colore, illic fulgent roseo, nitentque viridi._ Capitolinus in Maximini vita. _Posita ab eodem vitis intra annum ingentes uvas purpureas attulit._ Vopiscus in Taciti vita. _Vitis quae uvas Ammineas albas ferebat, eo anno, quo ille imperium meruit, purpurascere plurima purpura coepit._
+
+Hinc lapis etiam quidam Lapis purpureus, sive Porphyrites, sive Porphyra (unde Italicum verbum _Porfido_) ab antiquis hominibus appellabatur; eo quod rubidum hunc colorem purpureum aliquot tantum maculis albis interlitum praeseferret, uti quisque novit.
+
+Eminebat Constantinopoli ampla domus hoc uno lapide constans, et ideo Purpura, sive πορφυρα vocata, quam ita eleganter describit Anna Comnena Alexiados lib. 7. Η δε πορφυρα οικημα τι εστι κατα τα αναητορα εξ αυτης της βασεως μεχρι της οροφου κινησεως δια τετραγωνου συμπληρουμενων σχηματος, εκειθεν δε εις πυραμιδα αποτελευτων. αφορων μεν ως προς ταλατταν προς τον λιμενα, ουπερ οι πετρινοι βοες, και οι λεοντες. δια μαρμαρων δε το τε εδαφος κατεστρωτο, και οι τοιχοι περιστελλοντο, ου των τυχοντων, ουδε των αλλων οποσοι εμποριστοτεροι των τιμιωτερων λιθων εισιν, αλλ' εξ ων απο ρωμης οι ανεκαθεν βασιλεις επεσυραντο. Εστι δε ουτος ο λιθος ολως ειπειν πορφυρους δι' ολου, και οιον στιγματα τινα ψαμμυειδη λευκα αυτω περιτρεχουσιν. Εκ τουτωνι των λιθων πορφυραν το οικημα οι ανεκαθεν ωνοματαν. _Est autem_ Purpura _aedificium quoddam prope imperiale Palatium ab ipsa basi usque ad tecti suggrundia quadrata constructum forma, hinc in pyramidem desinens. Prospectum habet mare versus in eum portum, in quo lapidea visuntur boum et leonum simulacra. Marmore solum constructum est, et parietes tecti. Marmor porro istud non jam est ex vulgatis, neque ex excellentioribus, quotquot sunt magis parabilia, sed ex illis, quae ab urbe Roma primi Imperatores transtulerunt. Est is lapis purpureus totus, et tantum punctula alba arenae specie eum percurrunt. Ex hisce lapidibus Purpuram hoc aedificium antiqui vocaverunt._
+
+Inserviebat autem haec porphyretica domus Augustarum puerperiis, et hinc Porphyrogenetae appellabantur Graecorum Imperatorum filii, non qui post comparatam a Patre imperii purpuram, sed qui in hac domo, quae Purpura, sive lapis purpureus vocabatur, nati essent. Eadem Anna Comnena Olympiados lib. 6. Ο δε βασιλευς... την βασιλιδα κατα το αωρισμενον καλαι ταις τικτουσαις των βασιλιδων οικημα επι ταις ωδισιν ευρηκως, (πορφυραν δε τουτο οι ανεκαθεν ονομαζουσιν, εξ ου και το των πορφυρογεννητων ονομα εις την οικουμενην διεδραμεν). _Ceterum Imperator... Augustam suam conjugem in dicata antiquitus puerperiis Augustarum aede in partus doloribus cum reperisset, (Purpuram autem ab antiquis temporibus hanc aedem vocant, unde Porphyrogenetarum nomen orbe toto manavit.)_ Hic tamen, quamvis abs re fuerit, animadvertere liceat, Annam Comnenam relato loco adfirmantem, primos Constantinopolitanos Imperatores porphyreticos hosce lapides usque ab urbe Roma transtulisse, et proinde judicare fas sit, ipsum Constantinum Magnum hanc domum instruxisse lapidibus illis porphyreticis, quibus jam Elagabalus plateas Romani Palatii stravisset, quosque lapides Lampridius ipse Constantino Maevus inde paucis ante annis eductos, quam ille historiam suam scriberet, adfirmat. Ita ille in Elagabali vita. _Stravit (Elagabalus) et saxis Lacedaemoniis ac Porphyreticis plateas in Palatio, quas Antoninianas vocavit, quae saxa usque ad nostram memoriam manserunt, sed nuper eruta sunt._
+
 ## Appendix de antiqua et nupera Purpura Dissertatio Johannis Baptistae Capellii veneti pharmacopolae.
 
 ...
