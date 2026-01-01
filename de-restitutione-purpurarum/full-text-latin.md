@@ -225,6 +225,103 @@ Eminebat Constantinopoli ampla domus hoc uno lapide constans, et ideo Purpura, s
 
 Inserviebat autem haec porphyretica domus Augustarum puerperiis, et hinc Porphyrogenetae appellabantur Graecorum Imperatorum filii, non qui post comparatam a Patre imperii purpuram, sed qui in hac domo, quae Purpura, sive lapis purpureus vocabatur, nati essent. Eadem Anna Comnena Olympiados lib. 6. Ο δε βασιλευς... την βασιλιδα κατα το αωρισμενον καλαι ταις τικτουσαις των βασιλιδων οικημα επι ταις ωδισιν ευρηκως, (πορφυραν δε τουτο οι ανεκαθεν ονομαζουσιν, εξ ου και το των πορφυρογεννητων ονομα εις την οικουμενην διεδραμεν). _Ceterum Imperator... Augustam suam conjugem in dicata antiquitus puerperiis Augustarum aede in partus doloribus cum reperisset, (Purpuram autem ab antiquis temporibus hanc aedem vocant, unde Porphyrogenetarum nomen orbe toto manavit.)_ Hic tamen, quamvis abs re fuerit, animadvertere liceat, Annam Comnenam relato loco adfirmantem, primos Constantinopolitanos Imperatores porphyreticos hosce lapides usque ab urbe Roma transtulisse, et proinde judicare fas sit, ipsum Constantinum Magnum hanc domum instruxisse lapidibus illis porphyreticis, quibus jam Elagabalus plateas Romani Palatii stravisset, quosque lapides Lampridius ipse Constantino Maevus inde paucis ante annis eductos, quam ille historiam suam scriberet, adfirmat. Ita ille in Elagabali vita. _Stravit (Elagabalus) et saxis Lacedaemoniis ac Porphyreticis plateas in Palatio, quas Antoninianas vocavit, quae saxa usque ad nostram memoriam manserunt, sed nuper eruta sunt._
 
+## Caput 6.
+
+_De Colore simplici purpureo caeruleo saturatiore, sive hyacinthino._
+
+Quintus color purpureus simplex erat caeruleus austerior, et violaceo mixtus. Julius Pollux Onomastici lib. 1. cap. 4. το δε αιμα, επειδαν πυρι ομιληση, χειθαι τε, και εξανθει. και το μεν ξανθιζεται, το δε κυαναυγες γιγνεται, το δε αλλο εις αλλην χροαν τρεπεται. _Sanguis (conchyliorum) cum igni efferbuerit, diffunditur, et efflorescit. Et alius quidem fit flavus, alius caeruleus austerus, aliusque in alium vertitur colorem._ Plinius lib. 21. cap. 13. _Tertius est, qui proprie conchylii intelligitur, multis modis. Unus in Heliotropio, et in aliquo ex his plerumque saturatior._ Enimvero Heliotropium antiquorum florem hujusmodi habebat caeruleum saturatiorem. Plinius ipse lib. 21. cap. 21. _Heliotropii caeruleum florem._ Hunc ipsum etiam Heliotropii florem uti caeruleum luridum, et violaceo mixtum ita describit Ovidius Metamorphoseon lib. 4. puellam Clytiam in hunc ipsum florem conversam enarrans.
+
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;_partemque coloris_  
+_Luridus exsangues pallor convertit in herbas._  
+_Est in parte rubor, violaeque simillimus ora_  
+_Flos tegit. Illa suum, quamvis radice tenetur,_  
+_Vertitur ad solem, mutataque servat amorem._
+
+Quidquid igitur dicant nostri Botanici homines, Heliotropium antiquorum flos ille non erat, quem nos Itali _Girasole_ vocitamus, quique non caeruleo, sed flavo flore coruscat. Quodnam igitur Heliotropium antiquorum? Certe Heliotropium, quod Graeci nominabant. Latini Intubum agreste appellabant. Vegetius Veterinariae lib. 3. cap. 62. _Heliotropii unciam, quod intubum agreste vocamus._ Neque id ullo modo dubitandum, Intubum enim sive agreste, sive sativum oculis nostris testibus, et ad solem vertitur, et caeruleum florem habet saturatiorem, sive violaceo mixtum, uti diximus.
+
+Hac vero purpura caerulea fulgebat praecipue Regum Persarum diadema. Curtius enim eodem libro 6. modo caeruleum, modo purpureum diadema ipsum vocat. Ita ille de Dario loquens: _Cidarim Persae regium capitis voc abant insigne: hoc caerulea fascia albo distincta circuibat._ Et mox de Magno Alexandro loquens: _Itaque purpureum diadema distinctum albo, quale Darius habuerat, capiti circumdedit._
+
+Eadem caerulea purpura concolori caeruleo caelo inficiebantur etiam fimbriae Hebraeorum juxta divinum praeceptum Num. cap. 20. Maimonides apud Bochartum Hierozoicon part. 2. lib. 5. cap. 9. _Cum fimbriarum thecheleth (seu purpuram) infecturi sunt... sanguinem_ του _chilzon (conchae purpurae) afferunt... et lanam in eum immergunt, donec fiat caelo concolor._
+
+Hyacinthus, Vaccinium, Iris, Gladiolus, unus erat apud antiquos idemque flos, licet ipsi nostri Botanici homines eos distinguere satius ducant. Primo enim Virgilius Graecum Hyacinthum Theocriti in suum Latinum Vaccinium perspicue vertit. Ita Theocritus Idyll. 10.:
+
+και το ιον μελαν εστι, και αγραπτα Υακινθος.  
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;Ita Virgilius eclog. 10.:  
+_Et nigrae violae sunt, et vaccinia nigra._
+
+Clarius etiam Philargyrius antiquus interpres ad lib. 4. vers. 183. Aeneidos: _Qui Graece Hyacinthus, Latine Vaccinium dicitur._ Quoad reliqua vero duo nomina Iridis, et Gladioli clare Columella lib. 9. cap. 4. _Caelestis nominis Hyacinthus._ Nimirum Iridis caelestis nomine donatus. Clarius etiam Palladius Rei rust. lib. 1. cap. 37.: _Hyacinthus, qui Iris, vel Gladiolus dicitur._ Hic vero flos quadruplici nomine ornatus apud antiquos, ille ipse flos erat, quem nos Itali _Giglio paonazzo_ appellamus; quique moenia Sabinianensium, qua ad meridiem vergunt, florido vere sponte nascens caerulea purpura exornat, proximoque oppidi vico nomen etiam _di contrada del Giglio_ impertitur. Rem ita esse ut probetur, audiamus sane descriptionem illius floris, quam nobis antiqui reliquerunt. Ita igitur eum describit Servius ad eclog. 3. vers. 106. Virgilii: _Hyacinthus ubique nascitur, flos, qui natus est primo de Hyacinthi sanguine, postea de Aiacis, sicut etiam Ovidius docet. Est autem quasi lilium rubrum designans primam Hyacinthi litteram._ Ita vero Ovidius immutatum referens in hunc ipsum florem puellum Hyacinthum Metamorphoseon lib. 10.:
+
+_Ecce cruor, qui fusus humi signaverat herbas,_  
+_Desinit esse cruor, Tyrioque nitentior ostro_  
+_Flos oritur, formamque capit quam lilia, si non_  
+_Purpureus color his, argenteus esset in illis._  
+_Ipse suos gemitus foliis inscripsit, et ai ai_  
+_Flos habet inscriptum._
+
+Jam vero eadem magnitudo, et eadem figura liliorum alborum, color caeruleus saturatior, sive violaceo mixtus, qui maximus est Iridis caelestis color, nonnullae lineae florem transcurrentes, et fabulosas litteras _ai ai_ referentes, folia ipsa tam floris, quam plantae longa, et acuta, et proinde simillima gladio, et simillima Υ primae litterae Graeci vocabuli Υακινθος, hae omnes eaedem proprietates sunt, quae a Servio, et ab Ovidio antiquo flori Hyacintho tribuuntur, quaeque in hunc florem, quem _Giglio paonazzo_ appellamus, adamussim congruere videntur.
+
+Jam vero hic, quem descriptimus, flos Hyacinthus colorem caeruleum saturatiorem, sive violaceo mixtum ostendit, testibus oculis nostris, testibus antiquis scriptoribus ipsis. Columella lib. 10. vers. C. eum vocat aperte caeruleum: _caeruleos hyacinthos_. Virgilius vero eclog. 10. vers. 39. nigrum hyacinthum non secus ac nigras violas refert, quasi huic flori colorem caeruleum austeriorem, aut violaceo mixtum donaturus:
+
+_Et nigrae violae sunt, et vaccinia nigra._
+
+Hinc idem hic flos Hyacinthus ratione coloris hujus purpurei caerulei saturatioris purpureus appellatus fuit ab Ovidio laudato loco referente puellum Hyacinthum in hunc ipsum florem conversum:
+
+_formamque capit, quam lilia, si non_  
+_Purpureus color his, argenteus esset in illis._
+
+Et ab eodem Ovidio Metamorphoseon lib. 13. Aiacem in hunc ipsum florem conversum enarrante:
+
+_rubefactaque sanguine tellus_  
+_Purpureum viridi genuit de cortice florem._  
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;Ita etiam ipse Ovidius Tristium lib. 1. eleg. 1.:  
+_Nec te purpureo velent vaccinia succo._  
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;Manilius Astronomicon lib. 5. vers. 268.  
+_Pallentes violas, et purpureos hyacinthos._  
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;Euphorion:  
+πορφυρεη Υακινθε σε τουνομα φασιν αοιδοι  
+_Purpureae hyacinthe, te nomine vocant Poetae._
+
+Lucianus in amoribus: Υακινθοις το καλον ανθουσιν ομοια πορφυροντες. _Cincinni perinde ac pulchre florentes hyacinthi purpurascentes._
+
+Immo hanc ipsam purpuram caeruleam saturatiorem antiqui homines ab hoc eodem flore Hyacinthinam appellare consueverunt. Persius Sat. 1.:
+
+_Heic aliquis, cui circum humeros hyacinthina laena est._
+
+Venantius Fortunatus lib. 4. Vitæ B. Martini:
+
+_ubi lana hyacinthina currit._
+
+Tertullianus in libro habitus mulierum: _Parietes Tyriis, et Hyacinthinis... pro pictura abutuntur._ Vopiscus in Bonosi Vita: _Tunicas palliolatas hyacinthinas subsericas._ Lex Theodosii a Justiniano relata in Codicem suum ad titulum: _Quae res vendi possunt. Fucandae, atque distrahendae purpurae vel in serico, vel in lana, quae blatta, vel oxyblatta, atque hyacinthina dicitur._
+
+## Caput 7.
+
+_De Colore simplici purpureo caeruleo dilutiore, sive molochino._
+
+Sextus color purpureus simplex erat caeruleus dilutior, sive caeruleus rubicundo mixtus. Plinius laudato pluries loco: _Alius (color) in malva ad purpuram inclinans._ Quis vero nesciat flores notissimos ubique nascentis malvae hocce colore caeruleo dilutiore, sive mixto cum rubro, laetissime perfusos? Nec alius erat profecto color molochinus antiquorum, quam iste purpureus caeruleus dilutior, ita dictus a malva, quae μολοχη Graece dicitur. Nonius: _Molochinum a Graeco color est flori similis malvae._ Immo Nonius ipse referre non dubitat hunc Caecilii versum molochinas vestes nuncupantem:
+
+_Carbasina, molochina, ampelina._
+
+Et etiam Plauti versum molochinarios hujusmodi purpurae caeruleae dilutioris infectores vocantem:
+
+_Astant molochinarii, petunt fullones._
+
+Non me latet verbum μαλακος solere verti _mollis_. Animadvertere tamen hic liceat, hanc ipsam vocem μαλακος ab ipsa malva, quae Graece etiam μαλαχη dicitur, proficisci. Deinde quoque observandum mollissimas fuisse purpuras omnes, uti cap. 30. enunciabimus. Fieri igitur facile possit, ut vox μαλακος a μαλαχη, quae eadem malva est, proficiscatur, et non jam mollem, sed purpureum, immo hunc ipsum purpureum colorem caeruleum dilutiorem, qui floris malvae similis sit, significare videatur. Muratorius pag. 939. n. 6. sui Thesauri Inscriptionum hanc epigraphen nobis refert: P. AVCTIVS P. F. LYSANDER VESTIARIVS TENVARIVS MOLOCHINARIVS. Hinc idem Muratorius subdit: _Vestiarius Tenuarius is dicebatur, qui vestes tenuiores conficiebat. Molochinarius, qui ejusmodi vestes molochini coloris parabat. Audi Nonium etc. Caecilium etc. Plautum etc. At malva Graecis μαλαχη malache appellata est: quod nomen aliis Graecis est μολοχη moloche. Proinde non uno errore labitur Isidorus lib. 19. cap. 22. Originum, dum scribit: Molochinia vestis, quae malvarum stamine conficitur._
+
+## Caput 8.
+
+_De Colore simplici purpureo flavo._
+
+Septimus color purpureus simplex erat flavus. Julius Pollux relato loco: το μεν ξανθιζεται. _Sanguis conchyliorum aliquando flavescit..._ Plinius vero loco eodem colori violae serotinae, seu autumnalis comparat. _Alius (color) in viola serotina conchyliorum vegetissima._ Quae autumnalis, aut serotina viola flava erat, cum Plinius ipse calthae concolorem faciat lib. 21. cap. 6.: _Calathiana (viola) munus autumni, caeterae veris. Proxima ei caltha est concolori amplitudine._ Indubium autem est, calthae florem esse flavo colore nitescentem, tum testibus oculis, tum teste Italo nomine _di Fiorrancio_, quo caltham indigitamus, testibus denique ipsis antiquis scriptoribus. Virgilius eclog. 2.:
+
+_Mollia luteola pingit vaccinia caltha._  
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;Columella lib. 10. vers. 97.  
+_Candida leucoia, et flaventia lumina calthae._
+
+Immo ipse Plinius lib. 21. cap. 11. assimilat violam ipsam serotinam flammae colori, quem flavum videmus, et a quo ipsa viola nomine Graeco phlox, nimirum flammea etiam nuncupabatur. _Florum prima ver nunciantium viola alba. Postea quae appellatur purpurea. Proxime flammea, quae et phlox vocatur._ Columella eodem lib. 10. vers. 101. hanc violam auro ipsi, quod flavum est, assimilat:
+
+_quae frondens purpurat auro,_  
+_Ponatur viola._
+
 ## Appendix de antiqua et nupera Purpura Dissertatio Johannis Baptistae Capellii veneti pharmacopolae.
 
 ...
