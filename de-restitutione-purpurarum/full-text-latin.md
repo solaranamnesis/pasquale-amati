@@ -48,6 +48,8 @@
 
 ## [Caput 8.]()
 
+## [Caput 9.]()
+
 ...
 
 ## [Appendix de antiqua et nupera Purpura Dissertatio Johannis Baptistae Capellii veneti pharmacopolae.]()
@@ -329,6 +331,14 @@ Immo ipse Plinius lib. 21. cap. 11. assimilat violam ipsam serotinam flammae col
 
 _quae frondens purpurat auro,_  
 _Ponatur viola._
+
+## Caput 9.
+
+_De Colore simplici purpureo rubicundo._
+
+Octavus color purpureus simplex erat rubicundus. Aristoteles Histor. anim. lib. 5. cap. 15.: ενιαι δ ερυθρον μικρον... αι δ εν τοις αιγιαλοις, και περι τας ακτας το μεν μεγεθος γινονται μικραι. το δε ανθος ερυθρον εχουσιν... εν δε τοις νοτιοις ερυθραι, ως επι το πλειστον. _Purpurae quaedam florem habent aliquantulum rubrum. Quae vero in sinibus degunt, aut circa littora, magnitudine parvae sunt, habent autem florem rubrum... In plagis vero ad meridiem vergentibus purpurae plerumque rubrae sunt._ Vitruvius eodem lib. 7. cap. 13. _Quod vero (conchylium) meridianis excipitur regionibus, rubra procreatur potestate, et ideo hoc rubrum Rhodo etiam insula creatur, ceterisque hujusmodi regionibus, quae proximae sunt Solis cursui._ Haec vero purpura rubicunda a Graecis purpura οξυς, sive acuta vocabatur, eo quod rubicundus color ceteris naturae coloribus sit vere acutior, et vividior. Plutarchum jam audivimus in Catonis vita vocantem πορφυραν κατακορως ερυθραν, και οξειαν. _Purpuram valde rubram, et acutam._ Legem quoque Theodosii audivimus, a qua nominatur purpura, quae blatta, vel oxyblatta dicitur. Addatur denique Cedrenus in Vita Tiberii 2.: των μερων φορουντων στολας σωληνωτας απο βλαττιου οξεος. _Factionibus Circi ferentibus stolas purpura acuta virgatas._
+
+Meminit 1. C. Ulpianus purpurae cujusdam, quam Buccinum vocat. Ita ille in L. Si cui lana D. De Legatis 3. _Appellatione purpurae... Buccinum et Hyacinthinum continebitur._ Haec autem Buccini purpura haec ipsa erat rubicunda purpura, cum concha illa, cui Buccino nomen erat, et quae nomen huic ipsi purpurae praestabat, colorem coccineum praeberet, qui profecto color erat rubicundus, uti cap. 16. probabimus. Plinius relato lib. 9. cap. 38.: _Buccinum... dat austeritatem illam, nitoremque, qui quaeritur, Cocci._ Hic tamen observandum, ceteros quidem omnes purpureos colores fuisse immortales, ut cap. 29. palam fiet, hunc vero rubicundum colorem Buccini vocatum, celer. rime evanescere, et extingui consuevisse. Plinius eodem loco. _Rubeus color nigrante deterior. Buccinum per se damnatur, quoniam fucum remittit._ Locus etiam Quintiliani huc referendus. Ait itaque hic egregius Rhetor lib. 12. cap. 10. Rhetorices, orationem floridis argutiis plenam placere, cum primum audias, uti vestis infecta coloribus non purpureis placet: eandem deinde orationem minus placere, si cum altera matura oratione comparetur, uti etiam minus placet vestis coloribus non purpureis infecta, si cum purpurea tantum lacerna comparetur: (lacernae enim tunc temporis omnes purpureae erant, uti plura etiam unius Martialis carmina undequaque hoc libro relata satis probant) ipsam denique orationem ad severum examen revocatam, et frigiditate argutiarum detecta, eo inenarrabili modo deformem visum iri, uti Buccini purpuram, cum haec illum suum colorem rubicundum, quem parvo tempore ementita fuerit, tandem omnino dimiserit. _Sed evanescunt haec, atque emoriuntur comparatione meliorum, ut lana tincta fuco citra purpuram placet: at si contuleris etiam lacernae, conspectu melioris obruatur, ut Ovidius ait. Si vero judicium his corruptis acrius adhibeas, ut Buccini purpura, jam illud quod fefellerat, exuat mentitum colorem, et quadam vix enarrabili foeditate pallescat._
 
 ## Appendix de antiqua et nupera Purpura Dissertatio Johannis Baptistae Capellii veneti pharmacopolae.
 
