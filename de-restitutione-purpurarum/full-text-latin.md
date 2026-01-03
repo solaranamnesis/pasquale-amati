@@ -340,6 +340,41 @@ Octavus color purpureus simplex erat rubicundus. Aristoteles Histor. anim. lib. 
 
 Meminit 1. C. Ulpianus purpurae cujusdam, quam Buccinum vocat. Ita ille in L. Si cui lana D. De Legatis 3. _Appellatione purpurae... Buccinum et Hyacinthinum continebitur._ Haec autem Buccini purpura haec ipsa erat rubicunda purpura, cum concha illa, cui Buccino nomen erat, et quae nomen huic ipsi purpurae praestabat, colorem coccineum praeberet, qui profecto color erat rubicundus, uti cap. 16. probabimus. Plinius relato lib. 9. cap. 38.: _Buccinum... dat austeritatem illam, nitoremque, qui quaeritur, Cocci._ Hic tamen observandum, ceteros quidem omnes purpureos colores fuisse immortales, ut cap. 29. palam fiet, hunc vero rubicundum colorem Buccini vocatum, celer. rime evanescere, et extingui consuevisse. Plinius eodem loco. _Rubeus color nigrante deterior. Buccinum per se damnatur, quoniam fucum remittit._ Locus etiam Quintiliani huc referendus. Ait itaque hic egregius Rhetor lib. 12. cap. 10. Rhetorices, orationem floridis argutiis plenam placere, cum primum audias, uti vestis infecta coloribus non purpureis placet: eandem deinde orationem minus placere, si cum altera matura oratione comparetur, uti etiam minus placet vestis coloribus non purpureis infecta, si cum purpurea tantum lacerna comparetur: (lacernae enim tunc temporis omnes purpureae erant, uti plura etiam unius Martialis carmina undequaque hoc libro relata satis probant) ipsam denique orationem ad severum examen revocatam, et frigiditate argutiarum detecta, eo inenarrabili modo deformem visum iri, uti Buccini purpuram, cum haec illum suum colorem rubicundum, quem parvo tempore ementita fuerit, tandem omnino dimiserit. _Sed evanescunt haec, atque emoriuntur comparatione meliorum, ut lana tincta fuco citra purpuram placet: at si contuleris etiam lacernae, conspectu melioris obruatur, ut Ovidius ait. Si vero judicium his corruptis acrius adhibeas, ut Buccini purpura, jam illud quod fefellerat, exuat mentitum colorem, et quadam vix enarrabili foeditate pallescat._
 
+## Caput 10.
+
+_De Colore simplici purpureo candido._
+
+Nonus color purpureus simplex erat candidus. Plinius lib. 37. cap. 19. _albicante purpurae dejectu._ Codinus in cap. 2. Officiorum Ecclesiae et Aulae Constantinopolitanae nuncupat λευκον βλατιον, _purpuram candidam_. Plutarchus in Alexandri Magni vita hunc Regem affirmat in Perside magnam purpurae rubicundae, et candidae vim reperisse: Οπου φασι και πορφυρας Ερμιονικης ευρεθηναι ταλαντα πεντακισχιλια, συγκειμενης μεν εξ ετων δεκα δεοντων διακοσιων, προσφατον και το ανθος ετι και νεαρον φυλαττουσης. αιτιον δε τουτου φασιν ειναι, το την βαφην δια μελιτος γινεσθαι των αλουργων, δι ελαιου δε λευκου, των λευκων. και γαρ τουτων τον ισον χρονον εχοντων την λαμπροτητα καθαραν, και στιλβουσαν ορασθαι.
+
+_Ubi ajunt reperta talenta quinquaginta millia purpurae Hermionices a ducentis fere annis repositae, et servantis adhuc recentem florem, et colorem suum. Cujus rei caussam esse dicunt, quod purpurarum rubicundarum tinctura melle paretur, tinctura autem purpurarum candidarum oleo albo. In his enim purpuris, cum tempus memorato aequale habuerint, purus, et lucidus splendor apparet._
+
+Albinovanus bis reperitur vocasse purpuream nivem, quae candida sit, in Elegia in obitum Maecenatis.
+
+_Purpurea sub nive terra latet._  
+_Brachia purpurea candidiora nive._
+
+Horatius lib. 4. ode 1. vocavit purpureos etiam candidos cycnos.
+
+_Purpureis ales oloribus._
+
+Denique Ovidius, et Catullus purpuream nuncuparunt ipsam candidissimam lucem. Ita Ovidius:
+
+_Laetaque purpurea luce refulsit humus._  
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;Catullus Epithal. Pelei, et Thetidis.  
+_Purpureaque procul nantes a luce refulgent._
+
+Satagunt commentatores, et Grammatici, ut haec translata verba esse nobis fidem faciant. Nos credimus haec propria, et candorem nivis, lucis, olorum candido colori hujus purpurae ab hisce scriptoribus propriissime comparatum. Si qua enim purpura candida non fuisset, nae infelicissime scriptores isti candidam nivem, candidam lucem, candidos olores cum purpureis coloribus, quorum nullus candidus esset, comparassent.
+
+## Caput 11.
+
+_De Coloribus simplicibus purpureis generatim._
+
+Novem igitur fuere purpurei colores marinis conchis producti, quos simplices vocamus. Primus erat niger. Secundus erat lividus, ferrugineus, venetus, aut niger caeruleo mixtus, similisque colori livido ferri tersi, olivarum maturarum, uvarum nigrarum, et maris a ventis, remisque agitati. Tertius erat violaceus, similis violaceo colori violae martiae, amethysti, et amelli. Quartus erat rubidus, similis colori rubido papaverum, sanguinis concreti, rosarum nigrarum, quas Damascenas vocant, mororum, uvarum rubidarum, et lapidis purpurei, sive Porphyritis. Quintus caeruleus saturatior, sive caeruleus violaceo mixtus erat, similisque colori caeruleo saturo sereni caeli, heliotropii, hyacinthi. Sextus erat caeruleus dilutior, sive caeruleus rubro mixtus, similisque colori caeruleo dilutiori florum malvae. Septimus erat flavus, similis colori flavo violae serotinae, calthae, flammae, et auri. Octavus erat rubicundus. Nonus denique erat candidus, similis candori nivis, et lucis, et cycnorum.
+
+Nulla profecto res nos fallere potuit in definiendis, metandisque hisce novem purpureis coloribus simplicibus. Nos antiquos Scriptores audivimus affirmantes, eosdem novem purpureos colores similes omnino fuisse relatorum naturalium corporum coloribus. Immo asseverat Plinius antiquos purpurarios artifices, cum purpuras conderent, eorundem naturalium corporum colores suis hisce factitiis purpureis coloribus quam vividissime imitari, et exprimere, et fere cum natura ipse certare consuevisse. Ita ille lib. 37. cap. 19. _Indicae amethysti absolutum felicis purpurae colorem habent, ad hancque tingentium officinae dirigunt vota._ Et lib. 21. cap. 8. _Luxuria vestibus quoque provocavit eos flores, qui colore commendantur._ Hinc purpureorum colorum, et florum, corporumque, quae diximus, concolori similitudine descripta, haec addit. _Paria nunc componuntur, et natura, atque luxuria depugnant._ Colores igitur florum, et corporum, quos retulimus, archetypa sunt, et novem simplices factitii purpurei colores, quos descripsimus, imagines erant. Si imagines periere, supersunt adhuc ea archetypa, quae de veritate purpureorum novem colorum simplicium, de quibus hactenus verba sunt facta, nihil nobis dubitandum esse spondeant.
+
+...
+
 ## Appendix de antiqua et nupera Purpura Dissertatio Johannis Baptistae Capellii veneti pharmacopolae.
 
 ...
