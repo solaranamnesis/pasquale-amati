@@ -50,6 +50,12 @@
 
 ## [Caput 9.]()
 
+## [Caput 10.]()
+
+## [Caput 11.]()
+
+## [Caput 12.]()
+
 ...
 
 ## [Appendix de antiqua et nupera Purpura Dissertatio Johannis Baptistae Capellii veneti pharmacopolae.]()
