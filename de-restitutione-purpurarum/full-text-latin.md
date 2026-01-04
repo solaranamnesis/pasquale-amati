@@ -56,6 +56,10 @@
 
 ## [Caput 12.]()
 
+## [Caput 13.]()
+
+## [Caput 14.]()
+
 ...
 
 ## [Appendix de antiqua et nupera Purpura Dissertatio Johannis Baptistae Capellii veneti pharmacopolae.]()
@@ -378,6 +382,86 @@ _De Coloribus simplicibus purpureis generatim._
 Novem igitur fuere purpurei colores marinis conchis producti, quos simplices vocamus. Primus erat niger. Secundus erat lividus, ferrugineus, venetus, aut niger caeruleo mixtus, similisque colori livido ferri tersi, olivarum maturarum, uvarum nigrarum, et maris a ventis, remisque agitati. Tertius erat violaceus, similis violaceo colori violae martiae, amethysti, et amelli. Quartus erat rubidus, similis colori rubido papaverum, sanguinis concreti, rosarum nigrarum, quas Damascenas vocant, mororum, uvarum rubidarum, et lapidis purpurei, sive Porphyritis. Quintus caeruleus saturatior, sive caeruleus violaceo mixtus erat, similisque colori caeruleo saturo sereni caeli, heliotropii, hyacinthi. Sextus erat caeruleus dilutior, sive caeruleus rubro mixtus, similisque colori caeruleo dilutiori florum malvae. Septimus erat flavus, similis colori flavo violae serotinae, calthae, flammae, et auri. Octavus erat rubicundus. Nonus denique erat candidus, similis candori nivis, et lucis, et cycnorum.
 
 Nulla profecto res nos fallere potuit in definiendis, metandisque hisce novem purpureis coloribus simplicibus. Nos antiquos Scriptores audivimus affirmantes, eosdem novem purpureos colores similes omnino fuisse relatorum naturalium corporum coloribus. Immo asseverat Plinius antiquos purpurarios artifices, cum purpuras conderent, eorundem naturalium corporum colores suis hisce factitiis purpureis coloribus quam vividissime imitari, et exprimere, et fere cum natura ipse certare consuevisse. Ita ille lib. 37. cap. 19. _Indicae amethysti absolutum felicis purpurae colorem habent, ad hancque tingentium officinae dirigunt vota._ Et lib. 21. cap. 8. _Luxuria vestibus quoque provocavit eos flores, qui colore commendantur._ Hinc purpureorum colorum, et florum, corporumque, quae diximus, concolori similitudine descripta, haec addit. _Paria nunc componuntur, et natura, atque luxuria depugnant._ Colores igitur florum, et corporum, quos retulimus, archetypa sunt, et novem simplices factitii purpurei colores, quos descripsimus, imagines erant. Si imagines periere, supersunt adhuc ea archetypa, quae de veritate purpureorum novem colorum simplicium, de quibus hactenus verba sunt facta, nihil nobis dubitandum esse spondeant.
+
+## Caput 12.
+
+_De divisione Colorum simplicium purpureorum._
+
+Saepiuscule nominat eodem loco Plinius colores purpurae, et colores conchylii, uti duos colores omnino distinctos, et diversos. Ita ille lib. 6. cap. 29. de Tyro loquens. _Nunc omnis ejus (Tyri) nobilitas conchylio, atque purpura constat._ Et lib. 29. cap. 35. _Sed quota haec portio est reputantibus purpuras, conchylia, margaritas?_ Ita pariter lib. 8. cap. 48. _Vidimus jam et viventium vellera purpura, cocco, conchylio infecta._ Et demum lib. 37. cap. 9. _Gallia herbis Tyrium, atque conchylium tingit._ Ita etiam Svetonius in vita Caligulae cap. 17. _Pueris, ac feminis fascias purpurae, ac conchylii distribuit._ Sed hujusmodi distinctionem declarat ipse Plinius lib. 21. cap. 8. asserens primum purpuram Tyriam, aut Laconicam rubidam, et purpuram violaceam, aut amethystinam vocari proprie, et peculiariter purpuras, aut purpureos colores. _Hos colores animadverto tres esse principales. Unum... in purpuris Tyriis, dibaphisque, et Laconicis. Alium in amethysto, qui in viola, et ipsum purpureum, quemque janthinum appellamus._ Asserit deinde Plinius eodem loco, purpuram caeruleam saturam similem heliotropio, purpuram caeruleam dilutam similem flori malvae, et purpuram flavam similem violae serotinae, proprie et peculiariter vocari consuevisse conchylia, aut conchylii colores: _tertius est, qui proprie conchylii intelligitur, multis modis. Unus in heliotropio, et in aliquo ex his plerumque saturatior. Alius in malva ad purpuram inclinans. Alius in viola serotina conchyliorum vegetissima._ Immo Plinius ipse hujusce distinctionis duas adfert caussas, nimirum infectionis discrimen, et discrimen coloris. Illi duo purpurae colores abundantioribus succis, hi tres conchylii colores parcioribus tingebantur. Rursus illi duo purpurae colores ob ipsam medicaminum copiam austeriores, hi tres conchylii colores ob medicaminum ipsorum parcitatem dilutiores, et laetiores erant. Ita ipse Plinius lib. 9. cap. 38. _Concharum ad purpuras et conchylia_, (en redit constans colorum purpurae, et colorum conchylii distinctio) _eadem quidem est materia, sed distat temperamento._ Ita deinde Plinius eodem loco describit illarum duarum purpurarum rubidae, et violaceae tincturam. _Buccinum... Pelagio admodum alligatur... ita fit amethysti color eximius ille. At Tyrius Pelagio primum satiatur... mox permutatur in Buccino._ Demum ita eodem loco enarrat horum trium conchyliorum tincturam, nimirum caerulei saturi, caerulei diluti, et flavi. _In conchyliata veste cetera eadem sine buccino... dimidia et medicamina adduntur. Sic gignitur laudatus ille pallor saturitate fraudata, tantoque dilutior, quanto magis vellera esuriunt._ Erant igitur colores rubidi, et violacei austeriores colores, majori succorum copia compositi, et fere plenae, et absolutae purpurae. Erant tres colores caerulei saturi, caerulei diluti, et flavi, minori succorum copia producti, et fere semiplenae, aut imperfectae purpurae. Factum igitur, ut antiqui ad hoc non minimum discrimen demonstrandum, illos duos primos proprie vocarent colores purpureos, istos vero tres postremos proprie colores conchyliatos nominarent, licet utrique, utpote iisdem marinis conchis educti, colores purpurei generatim nominarentur, et essent. Sed de hoc ipso colorum purpurae, et colorum conchylii discrimine plenius in cap. 25. agetur.
+
+An autem purpuris, sive conchyliis reliquos quatuor purpureos simplices colores, nigros, lividos, rubicundos, candidos antiqui contribuerint, omnino latet, cum eos Plinius ne quidem commemoret. Veri autem simile est praeteriisse Plinium quatuor illos purpureos colores, quod fere essent rariores, et obsoleti; nigri quidem, et lividi, eo quod inamoeni; rubicundi, eo quod facile evanescentes; candidi, quod proprii Persarum, et Indorum, et in Romano Imperio inusitati, et fere nulli essent, ut cap. 20. videbimus. Cum tamen Plinius unos colores caeruleos saturos, caeruleos dilutos, et flavos conchylii colores nuncupet, eosque unos dilutiores, et parcioribus succis conditos affirmet, pro certo est habendum, quatuor reliquos memoratos colores jam purpureos, non conchyliatos ab antiquis vocitari, et haberi consuevisse. Cum igitur antiquos scriptores invenerimus reminiscentes colores conchyliatos, nae intelligamus unos colores caeruleos, aut flavos, non vero ceteros purpureos colores, qui hac peculiari significatione nullo modo continerentur. Ita locus Plauti intelligendus Pseudoli. act. 1. scen. 2. 
+
+_Neque Alexandrina belluata conchyliata tapetia._
+
+Ita etiam Cicero Philip. 2. _Conchyliatis Gn. Pompeii peristromatis servorum in cellis lectos stratos videres._ Seneca ep. 62. _Demetrium virorum optimum mecum circumfero, et relictis conchyliatis cum illo seminudo loquor, illum admiror._ Juvenalis Sat. 8.
+
+_stahat acervus_  
+_Nummorum, Spartana chlamys, Conchylia Coa._  
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;Idem Juvenalis Sat. 3.  
+_Horum ego non fugiam conchylia?_
+
+Svetonius in Caesaris vita. _Usum conchyliatae vestis ademit._ Ita denique ceteri omnes scriptores intelligendi, qui colorum conchylii meminerint, quosque brevitatis gratia praeterimus.
+
+## Caput 13.
+
+_De coloribus purpureis mixtis._
+
+Quinque porro erant colores mixti purpurei, uti cap. 1. diximus.
+
+Primus autem color mixtus purpureus ex colore amethystino violaceo, et ex Tyrio rubido componebatur, et iccirco color Tyrianthinus, aut Tyriamethystinus vocabatur. Plinius ipse lib. 9. cap. 40. 41.: _Sed alia sunt e fine initia, juvatque ludere impendio et lusus geminare miscendo iterum et ipsa adulteria naturae... Non est satis abstulisse gemmae nomen amethystum: rursus absolutus inebriatur Tyrio, ut sit ex utroque nomen improbum, (Tyriamethystinus) simulque luxuria duplex._ Vopiscus in Carini vita: _Inscriptum est adhuc in choraulae pallio Tyrianthino... Messalae nomen et uxoris._ Martialis lib. 1. epig. 54.
+
+_Sic interpositus vitio contaminat uncto_  
+_Urbica Lingonicus Tyrianthina bardocucullus._
+
+Observavimus superiore capite colores caeruleos saturos, caeruleos dilutos, et flavos, proprie colores conchyliatos, aut conchylii vocitatos fuisse. Secundus igitur mixtus color ex Tyrio rubido, et caeruleo saturatiore componebatur, quemadmodum tertius ex Tyrio rubido, et caeruleo dilutiore, et quartus tandem ex ipso Tyrio rubido, et flavo componebatur. Plinius eodem loco: _Et cum confecere conchylia, transire melius in Tyrium putant._ Si enim cum Tyrio rubido miscebant antiqui colores conchylii, qui erant caeruleus satur, caeruleus dilutus, et flavus, hos tres colores mixtos descendere necesse fuit, nimirum rubidum caeruleo saturo mixtum, rubidum caeruleo diluto mixtum, rubidum denique flavo mixtum, uti diximus.
+
+Quintus denique color purpureus mixtus ex ipso Tyrio rubido, et ex colore coccineo, qui rubicundus est, uti cap. 16. videbimus, componebatur. Plinius eodem loco: _Quin et terrena miscere, coccoque tinctum Tyrio tingere, ut fieret Hysginum._ Color igitur Hysginus, de quo plurimi scriptores meminere, quos consulto praeterimus, color erat ex rubido, et rubicundo mixtus, et fere inter utrumque medius. Sed iterum de hisce mixtis coloribus purpureis cap. 25. loquemur.
+
+Si igitur observatum est, colores purpureos fuisse novem simplices, et quinque mixtos, jam clarissime patet, purpuram non fuisse peculiarem colorem aliquem, quae vulgaris omnium nostrorum hominum est opinio, sed potius tincturae genus, quo fere omnes iidem colores producerentur, qui herbis aut vegetabilibus produci consuevissent.
+
+## Caput 14.
+
+_De Ostro._
+
+Non imus inficias Ostrum fuisse plerumque nomen cuilibet purpureo colori significando commune, nomenque ipsum ab οστρεον, quod concham marinam significat, esse profectum, ut ait ipse Vitruvius lib. 7. cap. 13.: _Quod ex concharum marinarum testis eximitur, ideo ostrum est vocitatum._ Non id tamen semper accidit: immo plerumque ostrum uni colori purpureo rubido significando proprie assignatum observavimus.
+
+Considerandum enim est primo nomen ostri unis purpuris Sidoniis, Tyriis, et Punicis tantum adtributum fuisse, quae procul dubio rubidae erant, uti cap. 5. vidimus. Pauca haec testimonia veterum pluribus omissis suffecerint.
+
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;Propertius lib. 3. eleg. 13.:  
+_Et Tyros ostrinos praebet Cadmea colores._  
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;Idem Propertius lib. 4. eleg. 3.:  
+_Nam mihi, quo Poenis tibi purpura fulgeat ostris._  
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;Ovidius Heroidum epist. 12.:  
+_Rideat, et Tyrio jaceat sublimis in ostro._  
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;Idem Ovidius Metamorphoseon lib. 10.:  
+_Desinit esse cruor, Tyrioque nitentior ostro_  
+_Flos oritur._  
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;Statius Sylvarum lib. 5.:  
+_Hic te Sidonio velatam molliter ostro._  
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;Silius Italicus Punicorum lib. 8.  
+_Et princeps Tyrio vestem praetexuit ostro._
+
+Alcimus Avitus nuncupat quoque ostrum Sidonium, et ostrum ipsum Sidonium a purpura distinguit, quam sorsan purpuram violaceam intelligit. Ita ille Poematum lib. 6.:
+
+_Nec te Sidonium bis cocti muricis ostrum_  
+_Induit, aut rutilo permulcens purpura fuco._
+
+Considerandum est secundo, Corippum in Panegyrico 1. in laudem Justini 2. enarrare, in quadam veste ejusdem Justini homines pugnantes auro, sanguinem vulnerum ostro pictum:
+
+_Effigies auro, sanguis depingitur ostro._
+
+Cum autem sanguis concretus sit rubidus, rubidum quoque esse debebat ostrum, quod ostrum ipsum sanguinem significare, et exprimere deberet.
+
+Tertio loco hic Virgilii versus ex lib. 2. Aeneidos est observandus:
+
+_Ipse peregrina ferrugine dives, et ostro._
+
+Minus propriam enim et Virgilio indignam Virgilius ipse partitionem hic nobis obtrusisset, si nomen proprium peculiaris purpurae, quae Ferrugo vocabatur, ut cap. 3. vidimus, cum nomine Ostro conjunxisset, quod appellativum, ut ajunt Grammatici, et commune coloribus omnibus purpureis designandis fuisset. Sed neutiquam putandum divinum Virgilium ita pueriliter errasse, potiusque dicamus Virgilium eundem, quemadmodum ferruginis nomine peculiarem purpuram lividam intellexerit, ita nomine ostri peculiarem aliquam purpuram intellexisse, et praesertim rubidam Tyriam. Et re quidem vera eodem laudato loco Corippus ipse Ferruginem, et Ostrum conjungit, sed sui ipsius, et ejusdem Virgilii sententiam ostendens, alteram purpuram lividis olivis, alteram vero purpuram rubidis uvis aequiparat, et proinde clare Ferruginem purpuram lividam, Ostrum purpuram Tyriam rubidam esse declarat:
+
+_Autumni Venetus ferrugine dives, et ostro_  
+_Maturas uvas, maturas signat olivas._
+
+Nonius denique in notis ad Turpilium Poetam in Veliterna Comoedia ostrinum colorem subrubeum, sive rubidum clarissime nuncupat. _Ostrinum ab Ostro colore, qui est subrubeus._
 
 ...
 
