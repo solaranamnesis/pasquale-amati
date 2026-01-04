@@ -463,6 +463,38 @@ _Maturas uvas, maturas signat olivas._
 
 Nonius denique in notis ad Turpilium Poetam in Veliterna Comoedia ostrinum colorem subrubeum, sive rubidum clarissime nuncupat. _Ostrinum ab Ostro colore, qui est subrubeus._
 
+## Caput 15.
+
+_De coloribus herbaceis._
+
+Quemadmodum vero antiqui homines plurimos colores conchis marinis producebant, ita quoque plurimos cudebant colores herbis, et vegetabilibus. Primum itaque eosdem fere omnes colores, quos e conchis marinis eduxisse hactenus vidimus, herbis, et vegetabilibus fingebant. Plinius lib. 22. cap. 2. _Jam vero infici vestes scimus admirabili fuco... transalpina Gallia herbis Tyrium, atque conchylium tingit, omnesque alios colores, nec quaerit in profundis murices... ut inveniat, per quod facilius matrona adultero placeat, corruptor insidietur nuptae. Stans et sicco carpit, quod frugi mundos exculpat._ Idem Plinius lib. 21. cap. 26. _Hyacinthus in Gallia eximie provenit. Hoc ibi pro cocco hysginum tingitur._ Plurimas vero rationes herbis simulandi purpureos omnes colores, sive simplices, sive mixtos, quos diximus, diligentissime tradunt Plinius ipse in sua naturali Historia, Vitruvius in Architectura, Julius Pollux in suo Onomastico, aliique antiqui Scriptores, qui consulendi.
+
+Ut vero hi colores memoratis purpureis similes, qui herbis conficerentur, discrimine aliquo notarentur ab iisdem coloribus, qui vere conchis marinis compositi fuissent, hi purpurae maritimae, illi purpurae tantum colores dici consuevere. Julius Pollux Onomastici lib. 7. cap. 13. Ο δε κανδυς ο μεν βασιλειος αλιπορφυρος, ο δε των αλλων πορφυρους. _Vestis autem regia ex purpura maritima erat, aliorum vero e purpura tantum._ Multa loca, quae expresse mentionem faciunt πορφυρας θαλαττιας, _purpurae marinae_, habes apud Bochartium _Hierozoicon_ Par. 2. lib. 5. cap. 14.
+
+Verum post hos omnes colores purpureos herbis, ut ita dicam, recusos, plurimos alios etiam colores herbis effingere solebant antiqui homines. Nobis autem, utpote de coloribus tantum purpureis tractaturis, uti diximus, suffecerit horum colorum floridissimus catalogus, quem nobis praebet Ovidius de Arte amandi lib. 3.
+
+_Quid de veste loquar? Nec vos, segmenta, requiro,_  
+_Nec quae bis Tyrio murice, lana, rubes._  
+_Cum tot prodierint pretio leviore colores,_  
+_Quis furor est census corpore ferre suo?_  
+_Aeris ecce color, tunc cum sine nubibus aer,_  
+_Nec tepidus pluvias concitat auster aquas._  
+_Ecce tibi similis, qui quondam Phryxon, et Hellen_  
+_Diceris Inois eripuisse dolis._  
+_Hic undas imitatur, habet quoque nomen ab undis._  
+_Crediderim Nymphas hac ego veste tegi._  
+_Ille crocum simulat, croceo velatur amictu,_  
+_Roscida luciferos cum Dea jungit equos._  
+_Hic Paphias myrtus, hic purpureas amethystos_  
+_Albentesve rosas, Threiciamque gruem._  
+_Nec glandes, Amarylli, tuae, nec amygdala desunt,_  
+_Et sua velleribus nomina cera dedit._  
+_Quot nova terra parit flores, cum vere tepenti_  
+_Vitis agit gemmas, pigraque cedit hiems,_  
+_Lana tot, aut plures succos bibit..._
+
+De numero autem colorum plurimorum, qui (praeter colores purpureis similes,) herbis conficerentur, deque eorundem conficiendorum ratione, iidem scriptores, quos supra retulimus, consulendi.
+
 ...
 
 ## Appendix de antiqua et nupera Purpura Dissertatio Johannis Baptistae Capellii veneti pharmacopolae.
