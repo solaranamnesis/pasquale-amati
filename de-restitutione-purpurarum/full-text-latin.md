@@ -60,6 +60,16 @@
 
 ## [Caput 14.]()
 
+## [Caput 15.]()
+
+## [Caput 16.]()
+
+## [Caput 17.]()
+
+## [Caput 18.]()
+
+## [Caput 19.]()
+
 ...
 
 ## [Appendix de antiqua et nupera Purpura Dissertatio Johannis Baptistae Capellii veneti pharmacopolae.]()
@@ -494,6 +504,90 @@ _Vitis agit gemmas, pigraque cedit hiems,_
 _Lana tot, aut plures succos bibit..._
 
 De numero autem colorum plurimorum, qui (praeter colores purpureis similes,) herbis conficerentur, deque eorundem conficiendorum ratione, iidem scriptores, quos supra retulimus, consulendi.
+
+## Caput 16.
+
+_De Colore coccineo._
+
+Celeberrimus vero colorum, qui herbis conficerentur, procul dubio erat coccineus. Color is e cocco, unde nomen accipiebat, producebatur. Coccus juxta antiquorum sententiam nihil aliud erat, quam granum quoddam, quod magna copia nascebatur in Africa, in Galatia, in Lusitania. Plinius lib. 9. cap. 41. _Coccum Galatiae rubens granum, ut dicemus in terrestribus, aut circa Emeritam Lusitaniae in maxima laude est._ Et in lib. 22. cap. 2. _Jam vero infici vestes scimus admirabili fuco. Atque ut sileamus Galatiae, Africae, Lusitaniae granis Coccum Imperatoriis dicatum paludamentis... tingi._ Theophrastus in Hist. Plant. lib. 3. cap. 16., Dioscorides lib. 3. cap. 16. Pausanias lib. 4. cap. 18. lib. 10., et Strabo lib. 10. plurimum de Cocco loquuntur, ad quos missos facimus lectores. Juxta vero recentiores observationes Coccus granum non est, sed Galla ex ilice quadam prognascens, aut potius quidam vermiculus, qui, ubi interierit, distenditur, grandescit, fitque Galla ovis refertissima, e quibus ovis plurimi rubicundi vermiculi progignuntur, qui ab Arabibus _Chermes_ vocantur, et e quorum rubicundo sanguine color iste coccineus formari solet. Percrebrescit, et viget adhuc hujusce coccinei coloris artificium, isque ipse est color, quem nos Itali, _colore di scarlatto, di grana, chermisi, overmiglio_, a genitoribus vermibus nomine profecto appellamus, uti est notissimum. Immo color ipse, qui nupera nostra _Coccinilia_ effingitur, ut nomen ipsum declarat, vel ratione vermium, vel ratione _coloris_, cocci quoque similis est. Nemo vero nescit, hunc colorem, quem adhuc oculis videmus, vividissime rubicundum esse. Id dixere tamen etiam antiqui scriptores. Plinius lib. 21. cap. 8. eum rosarum colori comparat, qui quoque vividissime est rubicundus. _Unum (colorem) in cocco, qui in rosis micat: gratius nihil traditur aspectu._ Theophrastus, et Hesychius eumdem cocci colorem phoeniceum vocant, hoc est rubicundum: phoeniceus enim color est rubicundus, uti capite sequenti est demonstrandum. Ita ille lib. 3. cap. 16. κοκκον φοινικουν: _Coccum Phoeniceum_. Ita hic. κοκκος φοινικουν χρωμα. _Coccus color phoeniceus_. Ita etiam Horatius Sat. 6.
+
+_rubro ubi cocco_  
+_Tincta super lectos canderet vestis eburnos._  
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;Venantius Fortunatus Poem. 7. lib. 7.  
+_Aureus ordo crocis, violis hinc blatteus exit,_  
+_Coccinus hinc rubicat, lacteus inde nivet._  
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;Sedulius Carminum lib. 4.  
+_rubri vilem sub tegmine cocci_  
+_Vestitur chlamydem._
+
+## Caput 17.
+
+_De Colore puniceo, aut phoeniceo._
+
+Certe color puniceus, aut phoeniceus non erat purpureus, cum antiqui scriptores iisdem locis purpureum, et puniceum, uti duos diversos colores distinguant. Plautus Menaechmis act. 5. scen. 5.
+
+_Quin tu me interrogas, purpureum panem,_  
+_An puniceum soleam ego esse, an luteum._  
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;Lucretius lib. 2.  
+_Purpura, poeniceusque color clarissimu' multo._  
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;Paullinus Petrocorius in B. Martini vita lib. 3.  
+_Dives in excelsis splendescit purpura fulcris,_  
+_Mollia puniceo motantur serica fuco._  
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;Cresconius Corippus lib. 1. Panegyrici in laudem Justini 2.  
+_Purpureo surae resonant fulgente cothurno,_  
+_Cruraque puniceis induxit regia vinclis._
+
+Athenaeus Deipnosophistarum lib. 5. πρωτοι μεν οι τον οχλον ανειργοντες Σειληνοι, πορφυρεας χλαμυδας, οι δε φοινικιδας εμφιεσμενοι. _Primi Sileni submoventes turbam purpureas chlamydes, alii vero puniceas induebantur._
+
+Varro autem, et Propertius non modo puniceum a purpureo distinguunt, sed etiam colorem, et coloris nomen ab Africa, et a Poenis profectum autumant. Ita Varro lib. 4. de Lingua Latina. _Purpureum a purpurae maritimae colore. Poeniceum quod primum a Poenis dicitur adlatum._ Propertius lib. 4. eleg. 3.
+
+_Illi selectos certent praebere colores_  
+_Africa puniceum, purpureumque Tyros._
+
+Abundat autem Africa cocco, ut affirmavit Plinius superiori Capite relatus, et proinde puniceum, aut phoeniceum colorem fuisse oportuit rubicundum, immo ipsum coccineum. Aulus Gellius lib. 2. cap. 26. Noct. Attic. _Nam poeniceus, quem tu Graece φοινικα dixisti, noster est: et rutilus, et spadix phoenicei συνωνυμα, qui factus Graece noster est, et exuberantiam, splendoremque significat ruboris, quales sunt fructus palmae arboris non admodum sole incocti, unde spadicis, et phoenicei nomen est. Spadica enim Dorici vocant avulsum e palma termitem cum fructu._ Plutarchus in Pompeii, et Bruti vita vocavit: _puniceam tunicam, φοινικουν χιτωνα, tunicam illam rubicundam, quam Romani Imperatores ante tabernaculum, uti pugnae signum, proponerent, quae ipsa tunica ab eodem Plutarcho in Fabii vita χιτων κοκκινος, _tunica coccinea_ vocata fuit. Isidorus. _Russata, quam Graeci phoeniceam vocant, nos coccinam._ Horatius Epodon ode 9.
+
+_Terra, marique victus hostis punico_  
+_Lugubre mutavit sagum._
+
+Et ad eumdem locum Porphyrion. _Hoc est, deposuit coccineam chlamydem Antonius, qua scilicet Imperator utebatur, et accepit lugubrem, idest nigram._
+
+## Caput 18.
+
+_De Colore Blatteo, vel Blattae._
+
+Contra autem blatteus, vel blattae color coccineus non erat, cum et coccineum, et blatteum colorem eodem loco antiqui scriptores, uti duos distinctos colores, nominent. Lampridius in Elagabali vita. _Paraverat igitur funes blatta, serico, et cocco intortos, quibus, si necesse esset, laqueo vitam finiret._ Venantius Fortunatus Poem. 7. lib. 7. non tantum coccineum, et blatteum colorem, uti diversos, eodem loco nuncupat, sed etiam coccineum rubicundum, et blatteum violaceum, idest purpureum declarat.
+
+_Aureus ordo crocis, violis hinc blatteus exit,_  
+_Coccinus hinc rubicat, lacteus inde nivet._
+
+Immo idem Fortunatus lib. 9. Poem. 10., uti purpureum conceptis verbis colorem blatteum nuncupat.
+
+_Albent purpureis ubi lactea lilia blattis._
+
+Eutropius quoque blatteos, et Orosius purpureos funes retium appellat, quibus Nero piscabatur. Ita Eutropius: _Nero hamis aureis, argenteisque piscabatur, qui blatteis funibus extrahebantur._ Ita Orosius. _Nero retibus aureis piscabatur, quae purpureis funibus extrahebantur._ Sidonius Apollinaris Carm. 5. purpuris celeberrimam Tyrum laudat, uti blattae genitricem.
+
+_Pontus Castorea, blattam Tyrus, aera Corinthus._
+
+Idem Sidonius lib. 9. epist. ultim. blattiferum vocat Senatum, quem purpura, non cocco ornatum cap. 39. observabimus.
+
+_Blattifer vel quam tribuit Senatus._
+
+Ipse Sidonius lib. 9. epist. 13. Blattas vocat bis tinctas, nimirum clare purpuras, quae bis, uti cap. 25. confirmabimus, tingebantur.
+
+_Rutilasque ferte Blattas,_  
+_Recoquente quas aheno_  
+_Meliboea fucat unda,_  
+_Opulentet ut meraco_  
+_Bibulum colore vellus._
+
+Blattas bis tinctas, sive purpuras nominat etiam Alcimus Avitus Poemat. lib. 3.
+
+_Ipse cothurnatus gemmis, et fulgidus auro,_  
+_Serica bis coctis mutabat tegmina blattis._
+
+Denique clarissime Blattam esse purpuram, non coccineum colorem, declarat 50. 1. lib. 40. in Codice Justinianaeo. _Fucandae, atque distrahendae purpurae vel in serico, vel in lana, quae blatta, vel oxyblatta, vel hyacinthina dicitur._
+
+Sed quaenam origo hujusce vocis Blattae, qua posteriores Latini, Graecique purpuram nuncupabant? Graeca antiqua Glossaria auctorem adferunt quemdam _Actuarium_, qui adfirmat, Blattam sibi velle os nasi, sive rostri, quo concavo ad exerendam linguam donari conchas purpuras cap. 22. enarrabimus. Ita _Actuarius_ ipse a Glossis relatus. Βλαττιον βυζαντιον οστουν της ρινος της πορφυρας. _Blatta Byzantia os nasi purpurae._ Mattiolius, Lemerius, aliique Pharmaceutici quoddam celebre Blattion Byzantion describunt, ex quo nonnullae elapsis saeculis, uti ex cornu cervino, medicinae parabantur. Verum hoc Pharmacopolarum Blattion Byzantion nihil aliud est profecto, quam ipsum concharum, quas purpuras vocant, rostrum, uti cuilibet observare licet in Pharmacopolarum tabernis, et in tabulis ipsis incisis apud Mattiolium, aliosque hujusmodi Pharmaceuticos, et confirmat etiam Rondeletius lib. 2. cap. 15. de Testaceis. Veri igitur simile est, antiquos rostrum conchae purpurae primum, et postea concham purpuram totam nomine Blattae donasse, et deinde nomen ipsum Blattae, et purpurae a conchis blattis, et purpuris ad purpureos ipsos colores, qui ex illis effingerentur, significandos transduxisse. Immo etiam coniectura probabili assequi possumus, cur Blattam rostrum conchae purpurae Graeci nuncupaverint. Audiemus Cap. 22. conchas purpuras ceterarum concharum cortices, ut eas devorarent, solidissimo hoc suo rostro tundere, et effringere consuevisse. Vocavere igitur Graeci hoc rostrum Blattion a verbo βλαπτω, quod sibi vult laedere, et percutere, quasi rostrum reliquas conchas percutiens, et laedens significarent. Ab eadem voce βλαπτω felicius forsitan nostrum ipsum Italicum verbum _battere_, quam a quovis alio longius petito, et intorto etymo promanare videtur.
 
 ...
 
