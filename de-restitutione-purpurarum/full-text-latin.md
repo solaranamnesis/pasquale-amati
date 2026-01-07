@@ -646,6 +646,35 @@ _Et nigrae violae sunt, et vaccinia nigra._
 
 Immo ipse Virgilius Georgicorum lib. 4. violas eodem tempore purpureas, et nigras appellare non dubitavit hisce verbis, _violae sublucet purpura nigrae_. Usuvenit profecto apud antiquos scriptores, quod in communibus sermonibus nostris usuvenire consuevit, quibus modo rubra, modo nigra quaedam corpora appellamus, quae non minus rubrum, quam nigrum colorem aperiunt. Ita nos dicere non dubitamus aliquando nigrum sanguinem, nigras uvas, mora nigra, et aliquando sanguinem rubrum, rubras uvas, mora rubra, eo quod non minus niger, quam ruber color in hisce corporibus interlucere videatur.
 
+## Caput 20.
+
+_De prima Caussa tot colorum purpureorum._
+
+Caeli, et climatum discrimen prima erat caussa hujusce varietatis, qua purpurei colores gaudebant. Marinae enim profecto conchae alios aliis regionibus, et climatibus succos edebant.
+
+Conchae Ponticae, Gallicae, et regionum similium, quae ad septemtrionem vergerent, duos tantum purpureos colores nigrum, et lividum reddebant. Jam enim audivimus Aristotelem cap. 2. dicentem: Ετι δε εν μεν τοις βορειοις μελαιναι. _Purpurae in locis ad septemtrionem versis sunt nigrae._ Nec non etiam Vitruvium: _Itaque quod (conchylium) legitur Ponto, et Gallia, quod hae regiones sunt proximae ad septentrionem, est atrum: progredientibus inter septemtrionem et occidentem invenitur lividum._
+
+Conchae Italicae, et similium climatum violaceum colorem purpureum referebant. Idem Vitruvius cap. 4. relatus: _Quod autem legitur ad aequinoctialem orientem, et occidentem_, (Vitruvius Italus erat, et de plagis orientalibus, et occidentalibus suae Italiae loquebatur) _invenitur violaceo colore._ Hujusmodi colore profecto nitebat Italica purpura Tarentina teste ipso Horatio lib. 2. epist. 1.,
+
+_Lana Tarentina violas imitata veneno._
+
+Hinc eodem violaceo colore etiam omnes alias Italicas purpuras splendere oportuit, quarum celebriores memorantur Syracusana, Hydruntina, Cissensis, Anconitana, et nostra Ariminensis. De purpura enim Syracusana in Sicilia, et Cissensi in Venetia, et Istria, (quae Cissa relata etiam a Plinio lib. 3. cap. 26. est recens oppidum _Humago_ in Istria ipsa,) mentionem facit sic vocata Notitia Imperii, prout cap. 56. observabimus, quemadmodum de Hydruntina loquitur Cassiodorus, uti cap. 58. declarabimus. Purpuram vero Anconitanam memorat Silius Italicus Punicorum lib. 8. eam Sidoniis, et Africis laudatissimis vix postponens:
+
+_Stat fucare colus nec Sidone vilior Ancon_  
+_Murice, nec Lybico._
+
+Ariminensem vero purpuram memorat etiam Festus in verbo _Trachali: Trachali appellantur muricum, ac purpurae superiores partes, unde Ariminenses maritimi homines cognomen traxerunt Trachali._ Immo Festo etiam quoad hoc Trachalorum agnomen, quo antiqui Ariminenses audiebant, fere concors est etiam Valerius Maximus lib. 7. cap. 7.: _Septitia quoque mater Tracholarum Ariminensium filiis irata, in contumeliam eorum, cum jam parere non posset, Publio seni admodum nupsit, testamento etiam utroque praeterito: a quibus aditus Divus Augustus, et nuptias mulieris, et suprema judicia improbavit. Nam haereditatem maternam filios habere jussit: dotem, quia non creandorum liberorum caussa conjugium intercesserat, virum retinere vetuit. Si ipsa aequitas hac de re cognoscere potuisset, justiusne, aut gratius pronunciaret?_ Praetereundum tandem hic non est, hoc Trachalorum, aut Tracholarum agnomen a Graeca voce Τραχηλος, qua colla animalium Graeci indigitant, proficisci, et proinde forsan in Festo _Tracheli_; et in Valerio _Trachelarum_ voces esse reponendas.
+
+Conchae Laconicae, Tyriae, Asiaticae, Gaetulicae, Africanae, omniumque regionum, quae ad meridiem vergunt, rubidum colorem purpureum prodebant. Plinius alibi relatus lib. 9. cap. 36.: _Liquoris hic minimi est in candida vena, unde pretiosus ille bibitur nigrantis rosae color sublucens... Color sanguinis concreti, nigricans aspectu, idemque suspectu refulgens... rorem eum excipientes Tyrii. Praecipuus hic Asiae, in Meninge Africae, et Gaetulo littore Oceani, in Laconica Europae._
+
+_Conchae Alexandrinae, Tyriae, Coae, earundemque omnium regionum ad meridiem vergentium etiam tres conchyliatos colores caeruleum saturum, caeruleum dilutiorem, et flavum edebant. Plinius lib. 5. cap. 29.: _Nunc omnis ejus (Tyri) nobilitas conchylio, atque purpura constat._ Plautus Pseudoli Act. 1. Scen. 2.:
+
+_Neque Alexandrina belluata conchyliata tapetia._  
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;Juvenalis Sat. 7.:  
+_Spartana chlamys, conchylia Coa._
+
+Conchae Rhodiae, et earundem regionum ad meridiem vergentium aliquem colorem purpureum rubicundum cudebant. Aristoteles cap. 9. relatus: Εν δε τοις νοτιοις ερυθραι. _Purpurae in regionibus ad meridiem spectantibus sunt rubrae._ Vitruvius quoque eodem capite relatus. _Quod vero (conchylium) meridianis excipitur regionibus, rubra procreatur potestate, et ideo hoc rubrum Rhodo etiam insula creatur, ceterisque hujusmodi regionibus, quae proximae sunt solis cursui._ Conchae demum Persicae, et Indicae, ceterarumque hujusmodi regionum fere sub torrida zona degentium non tantum eundem rubicundum, sed et candidum colorem purpureum effundebant. Jam enim audivimus Plutarchum in cap. 10. referentem Alexandrum magnum immensam vim purpurae rubrae, et candidae in Perside reperisse. Ad has quoque regiones pertinuere mirabiles purpurei colores, quos Rex Persarum Aureliano muneri misit, quorum Orbis Romanus nunquam antea similes viderat, quibusque comparatae Aureliani, et matronarum purpurae, cineris instar decolorari videbantur. Vopiscus in Aureliani Vita: _Tum genus purpurae, quod postea nec ulla gens detulit, nec Romanus orbis vidit, de quo saltem pauca libet dicere. Meministis enim fuisse in templo Jovis O. M. Capitolini pallium breve purpureum lanestre, ad quod cum matronae, atque ipse Aurelianus jungerent purpuras suas, cineris specie decolorari viderentur ceterae divini comparatione fulgoris. Hoc munus Rex Persarum ab Indis interioribus sumptum Aureliano muneri dedisse perhibetur, seribens. Sume purpuram, qualis apud nos est. Sed hoc falsum fuit. Nam postea diligentissime et Aurelianus, et Probus, et proxime Diocletianus missis diligentissimis confectoribus requisiverunt tale genus purpurae, nec tamen invenire potuerunt._
+
 ...
 
 ## Appendix de antiqua et nupera Purpura Dissertatio Johannis Baptistae Capellii veneti pharmacopolae.
