@@ -70,6 +70,8 @@
 
 ## [Caput 19.]()
 
+## [Caput 20.]()
+
 ...
 
 ## [Appendix de antiqua et nupera Purpura Dissertatio Johannis Baptistae Capellii veneti pharmacopolae.]()
@@ -596,7 +598,7 @@ _De discrimine Coloris coccinei, et purpureorum._
 Male coccineus color cum purpureis confundi consuevit. Omnes enim purpurei colores a coccineo, et nomine, et materia, et colore ipso longissime distabant. Et primum color coccineus, et purpureus, uti duo omnino distincti colores, nomine ipso ab antiquis scriptoribus distinguuntur. Plinius lib. 37. cap. 7. _Unam, quae purpura radiet, alteram quae cocco._ Et lib. 13. cap. 48. _Vidimus jam et viventium vellera purpura, cocco, conchylio infecta._ Svetonius in Neronis vita. _Piscatus est reti aurato, purpura, coccoque funibus textis._ Lampridius in Diadumeni vita. _Hic ubi primum indumenta coccea, et purpurea, ceteraque castrensia Imperii insignia accepit._ Martialis lib. 5. epig. 23.
 
 _Non nisi vel cocco madida, vel murice tincta_  
-_Veste nites, et te sic dare verba putas._
+_Veste nites, et te sic dare verba putas._  
 &emsp;&emsp;&emsp;&emsp;&emsp;&emsp;Et in lib. 3. epig. 2.  
 _Et te purpura delicata velet,_  
 _Et cocco rubeat superbus index._
@@ -605,16 +607,18 @@ Secundo materia ipsa coccineus color, et purpurei longissime distabant. Nos cap.
 
 Tertio, colore ipso differebant. Rubicundus erat color coccineus, uti cap. 16. vidimus. Colores autem purpurei in omnes alias colorum partes ibant, quam in rubicundi partes. Aderat quidem, quam supra diximus, purpura rubicunda, sed haec infrequens valde, utpote quae vigens tantum in Perside, vel India, perraro in orbis Romani regiones transduceretur, et quae rubicunda purpura in orbis Romani regionibus aliquando conficeretur ope majoris succi buccinorum, quam purpurarum, (unde etiam Buccini purpura vocabatur) ita evanida erat, et obnoxia corruptioni, ut hoc nomine damnata ab omnibus vix ac ne vix quidem cognosceretur. Ut autem clarius intelligatur, quantum coccineus color a purpureis omnibus (excepta Buccini rubicunda et inusitata purpura) differret, liceat hic promere notissimam illam septem naturae colorum seriem, qui primi vocantur, et a quorum mixtura ceteri omnes proficisci putantur. En seriem ipsam.
 
-Candidus.|Purpura candida inusitata.  
-Rubicundus.|Color coccineus. Inusitata purpura rubicunda.  
-Croceus.|  
-Flavus.|Purpura conchyliata flava.  
-Viridis.|  
-Caeruleus.|Purpurae duae conchyliatae, caerulea saturatior, et caerulea dilutior.  
-Rubidus.|Purpura rubida.  
-Violaceus.|Purpura violacea.  
-Niger.|Purpura livida.  
-|Purpura nigra.
+|             |                                                                          |
+|-------------|--------------------------------------------------------------------------|
+| Candidus.   | Purpura candida inusitata.                                               |
+| Rubicundus. | Color coccineus. Inusitata purpura rubicunda.                            |
+| Croceus.    |                                                                          |
+| Flavus.     | Purpura conchyliata flava.                                               |
+| Viridis.    |                                                                          |
+| Caeruleus.  | Purpurae duae conchyliatae, caerulea saturatior, et caerulea dilutior.   |
+| Rubidus.    | Purpura rubida.                                                          |
+| Violaceus.  | Purpura violacea.                                                        |
+| Niger.      | Purpura livida.                                                          |
+|             | Purpura nigra.                                                           |
 
 Natura ipsa relatae seriei veritatem ope Prismatis, et Iridis certissime demonstrat, uti Philosophi non ignorant. Series ipsa ita est disposita, ut a coloribus vividioribus profecta, et praesertim a rubicundo colore, qui omnium est vividissimus, gradatim ad obscuriores colores descendat, praesertim ad violaceum, qui omnium est obscurissimus. Supra rubicundum color nullus est alter vividior, si candidum excipias, qui candidus omnium fere colorum conjunctio est, quemadmodum etiam infra violaceum nullus est alter obscurior color, si nigrum excipias, qui fere omnium colorum est privatio. Haec igitur verissima primorum naturae colorum est series, quam diximus. Jam vero coccineus color, jam vero purpurei colores, iidem ipsi sunt naturae, et prismatis colores, aut succo cocci, aut succo concharum marinarum artificiose confecti. Hinc coccineus color rubicundo prismatis colori, flava purpura flavo, purpura caerulea caeruleo, purpura rubida rubido, purpura violacea violaceo, purpura livida, et nigra nigro prismatis, et naturae colori adamussim congruent. Idem de consensu, et aequalitate colorum purpureorum, quos mixtos nominavimus de consensu, et aequalitate mixtorum parium colorum prismatis dicendum, uti cuique facile est intellectu. Cum itaque verissimus sit consensus, quem diximus, colorum naturae, et colorum factitiorum purpurae, et cocci, hinc sequetur artificiosos hosce colores eundem habuisse vivacitatis gradum, quem naturae, et prismatis colores ostendunt. Fiet secundo, colorem coccineum ceteris omnibus coloribus vividiorem fuisse, purpuram conchyliatam flavam vividiorem duabus purpuris conchyliatis caeruleis, et hasce ambas purpura rubida vividiores, et hanc vividiorem violacea, et violaceam denique livida, et nigra vividiorem fuisse, eademque simili ratione vivacitatis purpureos colores mixtos fuisse omnino dispositos. Fiet tertio, superiores tres purpuras conchyliatas caeruleam saturam, caeruleam dilutam, et flavam, vividiores quoque fuisse, quam quatuor subiectas purpuras rubidam, violaceam, lividam, nigram. Fiet quarto, ipsam purpuram Tyriam rubidam, quae magis, quam ceteri purpurei simplices colores, cum rubicundo, aut coccineo colore confundi consuevit, ipsi nigro colori, aut ipsi nigrae purpurae, quam rubicundo colori, aut coccineo, magis affinem, et proximam fuisse. Fiet quinto, ipsum Hysginum colorem, qui prae ceteris purpurae coloribus mixtis, cum rubicundo, aut coccineo quoque confundi posset, quique medius quidam color inter rubicundum, et rubidum fuerat, tantum colori rubido vivacitate superiorem fuisse, quantum vivacitate ipsa colori rubicundo inferiorem.
 
