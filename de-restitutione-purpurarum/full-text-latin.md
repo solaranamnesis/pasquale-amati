@@ -543,7 +543,7 @@ Varro autem, et Propertius non modo puniceum a purpureo distinguunt, sed etiam c
 _Illi selectos certent praebere colores_  
 _Africa puniceum, purpureumque Tyros._
 
-Abundat autem Africa cocco, ut affirmavit Plinius superiori Capite relatus, et proinde puniceum, aut phoeniceum colorem fuisse oportuit rubicundum, immo ipsum coccineum. Aulus Gellius lib. 2. cap. 26. Noct. Attic. _Nam poeniceus, quem tu Graece φοινικα dixisti, noster est: et rutilus, et spadix phoenicei συνωνυμα, qui factus Graece noster est, et exuberantiam, splendoremque significat ruboris, quales sunt fructus palmae arboris non admodum sole incocti, unde spadicis, et phoenicei nomen est. Spadica enim Dorici vocant avulsum e palma termitem cum fructu._ Plutarchus in Pompeii, et Bruti vita vocavit: _puniceam tunicam, φοινικουν χιτωνα, tunicam illam rubicundam, quam Romani Imperatores ante tabernaculum, uti pugnae signum, proponerent, quae ipsa tunica ab eodem Plutarcho in Fabii vita χιτων κοκκινος, _tunica coccinea_ vocata fuit. Isidorus. _Russata, quam Graeci phoeniceam vocant, nos coccinam._ Horatius Epodon ode 9.
+Abundat autem Africa cocco, ut affirmavit Plinius superiori Capite relatus, et proinde puniceum, aut phoeniceum colorem fuisse oportuit rubicundum, immo ipsum coccineum. Aulus Gellius lib. 2. cap. 26. Noct. Attic. _Nam poeniceus, quem tu Graece φοινικα dixisti, noster est: et rutilus, et spadix phoenicei συνωνυμα, qui factus Graece noster est, et exuberantiam, splendoremque significat ruboris, quales sunt fructus palmae arboris non admodum sole incocti, unde spadicis, et phoenicei nomen est. Spadica enim Dorici vocant avulsum e palma termitem cum fructu._ Plutarchus in Pompeii, et Bruti vita vocavit: _puniceam tunicam_, φοινικουν χιτωνα, tunicam illam rubicundam, quam Romani Imperatores ante tabernaculum, uti pugnae signum, proponerent, quae ipsa tunica ab eodem Plutarcho in Fabii vita χιτων κοκκινος, _tunica coccinea_ vocata fuit. Isidorus. _Russata, quam Graeci phoeniceam vocant, nos coccinam._ Horatius Epodon ode 9.
 
 _Terra, marique victus hostis punico_  
 _Lugubre mutavit sagum._
@@ -664,7 +664,7 @@ Ariminensem vero purpuram memorat etiam Festus in verbo _Trachali: Trachali appe
 
 Conchae Laconicae, Tyriae, Asiaticae, Gaetulicae, Africanae, omniumque regionum, quae ad meridiem vergunt, rubidum colorem purpureum prodebant. Plinius alibi relatus lib. 9. cap. 36.: _Liquoris hic minimi est in candida vena, unde pretiosus ille bibitur nigrantis rosae color sublucens... Color sanguinis concreti, nigricans aspectu, idemque suspectu refulgens... rorem eum excipientes Tyrii. Praecipuus hic Asiae, in Meninge Africae, et Gaetulo littore Oceani, in Laconica Europae._
 
-_Conchae Alexandrinae, Tyriae, Coae, earundemque omnium regionum ad meridiem vergentium etiam tres conchyliatos colores caeruleum saturum, caeruleum dilutiorem, et flavum edebant. Plinius lib. 5. cap. 29.: _Nunc omnis ejus (Tyri) nobilitas conchylio, atque purpura constat._ Plautus Pseudoli Act. 1. Scen. 2.:
+Conchae Alexandrinae, Tyriae, Coae, earundemque omnium regionum ad meridiem vergentium etiam tres conchyliatos colores caeruleum saturum, caeruleum dilutiorem, et flavum edebant. Plinius lib. 5. cap. 29.: _Nunc omnis ejus (Tyri) nobilitas conchylio, atque purpura constat._ Plautus Pseudoli Act. 1. Scen. 2.:
 
 _Neque Alexandrina belluata conchyliata tapetia._  
 &emsp;&emsp;&emsp;&emsp;&emsp;&emsp;Juvenalis Sat. 7.:  
