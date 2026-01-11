@@ -747,6 +747,93 @@ Mirum profecto, et Plinium, et ceteros omnes, quos hoc capite adduximus, scripto
 
 ## Caput 25.
 
+_De tinctura colorum purpureorum._
+
+Absoluta hujusmodi succorum praeparatione tandem ad tincturam ipsam colorum purpureorum manus admovebatur. Sed observandum prius, antiquos non jam lanam netam, aut textam, sed rudem tantum coloribus purpureis infecisse. Plinius lib. 9. cap. 38. id primum demonstrat affirmans, lanam semel tinctam ante carminari consuevisse, quam secundo mergeretur. Jam vero lana rudis, non vero neta, aut texta carminari potest. _Quinis lana potat horis, rursusque mergitur carminata, donec omnem ebibat saniem._ Vidimus superiore capite Maimonidem referentem, lanam puram fuisse prius calce maceratam, tum lotam, inde saponis lixivio subiectam, et aliis hujusmodi praeparationibus subactam, quibus, ut lana colorem melius imbiberet, infectores uti solebant. Haec autem omnia in lana rudi, non autem in neta, aut texta usuvenire poterant. _Lanam sumunt, quam in calce maceratam, et subinde lotam, donec sit nitida, in sapone elixant, atque aliis hujusmodi, quomodo infectores solent, ut lana colorem imbibat._ Propertius lib. 4. eleg. 3. Arethusam inducit colo nentem fila lanea jam purpureo Tyrio colore infecta:
+
+_Noctibus hibernis castrensia pensa laboro,_  
+_Et Tyria in radios vellera ducta suos._
+
+Immo Homerus ipse Odysseae lib. 6. vers. 306. Alcinoi filiam nobis exhibet purpuream lanam nentem:
+
+Ηλακατα στρωφωσ' αλιπορφυρα, θαυμα ιδεσθαι.  
+_Pensum versans purpureum mirabile visu._
+
+Hoc posito, ad tincturam purpurarum, et prius purpurae violaceae accedamus. Ut purpuram violaceam itaque conderent antiqui, immittebant prius lanam in cortinam succo rubicundo buccinorum repletam quinque horarum spatio, et postea extractam, et carminatam in cortinam nigro succo purpurarum plenam rursus mergebant, quousque illis succis ubique pervasa, et fere satiata, et ebria fuisset facta. Plinius eodem lib. 9. cap. 38.: _Concharum ad purpuras, et conchylia eadem quidem est materia, sed distat temperamento... Quinis lana potat horis, rursusque mergitur carminata, donec omnem ebibat saniem. Buccinum per se damnatur, quoniam fucum remittit. Pelagio admodum alligatur, nimiaeque ejus nigritiae dat austeritatem illam, nitoremque, qui quaeritur, cocci. Ita permixtis viribus alterum altero excitatur, aut stringitur... Ita fit amethysti color eximius ille._
+
+Ut vero purpuram Tyriam rubidam inficerent antiqui, prius lanam rudem e converso immittebant in cortinam succo purpurarum plenam eodem quinque horarum spatio, non jam vero cum succus esset excoctus, et omnino niger, sed cum adhuc esset immaturus, et viridans, et hinc eamdem extractam, et carminatam iterum in cortinam rubicundo buccinorum succo repletam mergebant, quousque tota penitus quoque madefacta, et satiata appareret. Idem Plinius: _At Tyrius Pelagio primum satiatur immatura, viridique cortina, mox permutatur in buccino. Laus ei summa color sanguinis concreti nigricans aspectu, idemque suspectu refulgens._
+
+Hoc igitur inter tincturam violaceae, et rubidae purpurae discrimen erat, ut violacea prius succo buccinorum, inde purpurarum mergeretur, rubida vero Tyria prius purpurarum, deinde buccinorum succo madesceret.
+
+Summa vero, et ratio liquidae mixturae ad tingendas hasce duas purpuras requisita haec erat, ut buccinorum librae biscentum, purpurarum librae centum, et decem, libris decem vellerum tingendis sufficere putarentur. Idem Plinius: _Summa medicaminum in libras 10. vellerum, Buccini 200., Pelagii 110._ Observandum hic vero, hisce medicaminibus adiungendam fuisse aquam ea ratione, ut tertia pars aqua, duae tertiae partes medicaminibus constarent, uti superiori capite est enarratum. Hinc si ea ratione libris 200. buccinorum librae 100. aquae, et libris 110. purpurarum librae 55. aquae erant adiungendae, liquida mixtura exsurgebat librarum 300. buccinorum, et librarum 165. purpurarum, atque ita in totum mixtura librarum 465. exsurgebat, quae decem libris lanae tingendis sufficere putaretur. Observandum etiam, hanc mixturam librarum 465. longo decem dierum fervore forsitan ad pauculas crassi glutinis libras fuisse redactam, cujus quantitatem ignoramus, sed quam tamen usu edocti fuerant antiqui neque crassius, neque aquatius medicamen constituere, quamque optime decem libris lanae tingendis suppetere esset compertum.
+
+Ut tingerent vero antiqui conchyliatas purpuras caeruleam saturatiorem, sive hyacinthinam, caeruleam dilutiorem, sive molochinam, et flavam, uti vidimus, madefaciebant lanam rudem in una cortina succo purpurarum plena, omnino omissa cortina buccinorum, quae buccina nullo modo in hisce conchyliatis coloribus tingendis adhibebantur. Plinius ipse: _In conchyliata veste cetera eadem sine buccino._
+
+Ratio vero, et summa succi purpurarum, qua uterentur in hisce conchyliis tingendis, erat dimidium illius succi, qui in tingendis purpuris violaceis, et rubidis adhibebatur. Atque ita cum in istis purpuris violaceis, et rubidis 110. librae succi purpurarum adhiberentur, in purpuris conchyliatis caeruleis saturatioribus, caeruleis dilutioribus, et flavis tantum 55. librae succi purpurarum in singulas libras 10. vellerum tingendas adhibebantur. Aqua vero, quae in iisdem 55. libris succi purpurarum miscebatur (procul dubio eadem tertiae partis ratione) lotio, aut potius jure temperari consuevit. Idem Plinius prosequitur: _In conchyliata veste cetera eadem sine buccino, praetereaque jure temperatur aqua pro inviso humani potus excremento: dimidia et medicamina adduntur._
+
+Atque ita, quemadmodum maxima succorum abundantia, quae erat 465. librarum, uti vidimus, reddebat duas austeriores purpuras violaceam, et rubidam, ita minima succorum exiguitas, quae erat 55. librarum, aut ad summum librarum 73. adjecta tertia parte aquae lotio aut jure permixta, tres praebebat floridiores conchyliatos colores caeruleum saturum, caeruleum dilutum, et flavum, qui ideo semiplenae purpurae habebantur, et ad hoc tincturae, et coloris discrimen significandum colores conchylii, non purpurae dicebantur, uti etiam cap. 12. innuimus. Concludit Plinius: _Sic gignitur laudatus ille pallor saturitate fraudata, tantoque dilutior, quanto magis vellera esuriunt._
+
+Dibaphae, vel bis tinctae purpurae nominabantur ab antiquis scriptoribus. Cornelius Nepos apud Plinium lib. 9. cap. 39. _Huic successit dibapha Tyria._ Tibullus lib. 4. eleg. 2.
+
+_Mollia caris_  
+_Vellera det succis bis madefacta Tyros._  
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;Lucanus Pharsaliae lib. 10.:  
+_Strata micant, Tyrio quorum pars maxima fuco_  
+_Cocta diu, virus non uno duxit aheno._  
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;Sidonius Apollinaris Carm. 15.:  
+_Cujus bis coctus aheno_  
+_Serica Sidonius fucabat stamina murex._
+
+Sed nunc clare intelligere poterimus, quid sibi velint relati, aliique plurimi scriptores, qui dibaphas, seu bis tinctas purpuras nominarunt. Dibapharum igitur, aut bis tinctarum purpurarum nomine indigitant unas purpuras violaceas, et rubidas, quae duobus succis purpurarum, et buccinorum, duabusque cortinis tingebantur, non vero purpuras conchyliatas caeruleas saturas, caeruleas dilutas, aut flavas, quae una cortina, et uno succo purpurarum, eoque exiguo, nullo vero modo cortina, et succo buccinorum tingerentur.
+
+Alto premit silentio Plinius colores nigros, lividos, rubicundos, candidos, eorumdemque tincturam. Dicemus tamen, quod veri similius sit. Tinctura purpurarum nigrarum, et lividarum duobus forte modis usuveniebat, nimirum vel natura, vel artificio. Natura quidem caeli, cum nempe purpurae in Gallia, in Ponto, ceterisque regionibus ad septentrionem vergentibus tingerentur, quibus locis purpurarum, et buccinorum succi nigriore colore producerentur, uti cap. 20. animadvertimus. Artificio vero, cum major quantitas nigri succi purpurarum, quam succi rubicundi buccinorum adhiberetur. Quoties enim data erat ratio librarum 200. rubicundi succi buccinorum, librarum 110. nigri succi purpurarum, ut fierent colores rubidi, et violacei, si major quantitas succi nigri purpurarum, minor vero succi rubicundi buccinorum adhiberetur, profecto nigrae, aut lividae purpurae, ut quivis videt, fuissent educendae. Tinctura quoque purpurarum rubicundarum, aut candidarum vel natura, vel artificio usuvenire poterat. Natura, cum purpurae in Perside, in India, ceterisque hujusmodi regionibus ad meridiem declinantibus inficerentur, quibus locis purpurarum, et buccinorum succi vividiori rubicundo colore fulgerent, uti cap. 20. vidimus. Artificio vero, cum major quantitas rubicundi succi buccinorum, quam nigrioris succi purpurarum adhiberetur, et maxime adjecto melle purpuris rubicundis, et adjecto oleo albo purpuris candidis, uti Persae, et Indi solebant juxta Plutarchi testimonium, quod cap. 10. retulimus.
+
+Hinc facile etiam erui poterit colorum purpureorum tinctura, quos mixtos vocavimus, et quorum etiam tincturam reticuit Plinius. Scimus enim ex poenitentia enatos istos colores, et artifices, cum aliquem ex simplicibus purpureis coloribus suo artificio jam confectum, tamquam minus splendidum, reprobassent, eum veluti diffingentes, et delentes alium simplicem purpureum colorem altero artificio induxisse: verum tali ratione neque unum, neque alterum colorem simplicem purpureum, sed medium quemdam defluxisse colorem utrique simplici assimilem, eumque mixtum colorem casu ita enatum placuisse, et postea ex industria non casu procudi consuevisse. Plinius relato lib. 9. cap. 41.: _Poenitentia hoc primum debuit invenisse, artifice mutante quod damnabat: inde ratione nata votum quoque factum e vitio portentosis ingeniis, et gemina demonstrata via luxuriae, ut color alius operiretur alio, suavior ita fieri, leniorque dictus._
+
+Cum igitur artifices lanam prius buccinorum, dein purpurarum succo mergentes violaceum colorem condidissent, iterum lanam ipsam prius purpurarum, deinde buccinorum succo mergentes, quasi colorem Tyrium rubidum producturi, ex hac artificiorum mixtura medium quemdam colorem inter violaceum, ac rubidum Tyrium depromebant, qui ideo Tyriamethystinus, aut Tyrianthinus vocaretur.
+
+Ita quoque cum rubidum Tyrium intincta prius lana in succo purpurarum, deinde buccinorum confecissent, iterum intincta eadem lana in uno exiguo purpurarum succo, lotio tantum, aut jure temperato, et buccinorum succo omisso, tres medios colores excudebant, unum, qui medius esset inter Tyrium rubidum, et caeruleum saturum, alterum, qui medius esset inter Tyrium rubidum, et caeruleum dilutum, alterum denique, qui inter eumdem Tyrium rubidum, et flavum medius esset.
+
+Demum cum prius succo purpurarum, deinde buccinorum fucata lana Tyrium ipsum rubidum parassent, in coccineum succum mergentes, colorem quemdam medium inter rubidum, et rubicundum, et inter purpureum, coccineum colorem, qui Hysginus color est, efficiebant.
+
+## Caput 26.
+
+_De foetore purpurarum, et Purpurariis._
+
+Lanas vero ita infectas gravissimo pisculento foetore oluisse omnino oportuit. Plinius lib. 9. cap. 35.: _Virus grave in fuco._ Martialis lib. 2. epigr. 16.
+
+_Quid torus a Nilo, quid Sidone tinctus olenti?_  
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;Idem Martialis lib. 1. epigr. 50.:  
+_Olidaeque vestes murice._
+
+Hinc Strabo Geogr. lib. 16. ob plurima baphia aerem Tyri graviorem affirmat. πολυ γαρ διητασται πασων η τυρια καλλιστη πορφυρα... και δυσδιαγωγον μεν ποιει την πολιν η πολυπληθια των βαφεων. _Tyria enim purpura optima omnium perhibetur... Maxima hujusmodi (officinarum multitudo urbem reddit paullo graviorem._
+
+Denique Martialis ipse lib. 4. epigr. 4. purpurarum foetorem etiam graveolentiorum corporum paedori comparat. En totum ipsum Epigramma:
+
+_Quod siccae redolet palus lacunae,_  
+_Crudarum nebulae quod Albularum,_  
+_Piscinae vetus aura quod marinae,_  
+_Quod pressa piger hircus in capella,_  
+_Lassi bardaicus quod evocati,_  
+_Quod bis murice vellus inquinatum,_  
+_Quod jejunia Sabbatariorum,_  
+_Maestorum quod anhelitus reorum,_  
+_Quod spurcae moriens lucerna Ledae,_  
+_Quod ceromata faece de Sabina_  
+_Quod vulpis fuga, viperae cubile,_  
+_Mallem, quam, quod oles, olere, Bassa._
+
+Hinc Cassiodori temporibus, ut ipse ait lib. 1. epist. 2., conchae istae non jam statim ac occisae fuissent, ut Aristotelis, et Plinii tempore usuveniebat, sed sex fere post mensibus, quam intreiissent, (et certe quam coctae fuissent,) ad tincturam vocabantur, idque adeo, ut teter ille pisculentus odor, quem diximus, interea evanesceret, nec in purpureas vestes transiret. _Mirum est, substantiam illam morte confectam cruorem de se post spatia tam longi temporis exsudare, qui vix solet vivis corporibus vulnere sauciatis effluere. Nam cum sex pene mensibus marinae delitiae a vitali fuerint vigore separatae, sagacibus naribus nesciunt esse gravissimae, scilicet ne sanguis ille nobilis aliquid spiraret horroris._ Hinc ab antiquis omnino tollendus erat hic foetor odoratis aromatibus, quibus aromatibus purpuream lanam ante perfunderent, quam eam nerent, texerent, aut in vestes inducerent. Et haec profecto caussa erat, qua odoratae purpurae omnes ob antiquis gestarentur. Martialis lib. 9. epigr. 63.:
+
+_Tinctis murice vestibus quod omni_  
+_Et nocte utitur, die Philenis,_  
+_Non est ambitiosa, nec superba,_  
+_Delectatur odore, non colore._
+
+Enarrabimus cap. 29. jam pridem in sepulcro prope Romam purpureas vestes aromatum plurimo odore adhuc fragrantes, quae idipsum confirment, fuisse repertas.
+
+Nomen _Purpurarius_ in inscriptionibus antiquis apud Gruterum, aliosque insciptionum collectores legitur. Caelius Rhodiginus lib. 8. cap. 11. purpurarum piscatores hos Purpurarios fuisse contendit. Eques vero Orsatius Marmorum eruditorum part. 2. inscriptionem adfert, in qua nomen _Purpurarius_ legitur, et fidem facit, in marmore inscriptionis ampullam quamdam, et lancem prominentes videri, illam nimirum tamquam purpureum succum excoctum, et diffusum continentem, istam vero jam purpura tinctam lanam ad vendendum appendentem. Igitur Purpurarius non purpurarum captor, aut piscator, sed infector fuit. Confirmat rem Julius Pollux Onomastici lib. 5. cap. 33.: Ο δε καταβαπτων αυτα πορφυροβαφος. _Qui vero haec tingit, purpurarius_ (vocatur). Nec non Aelianus de natura anim. lib. 16. cap. 1.: Ανηρ πορφυρευς οταν θηρατι πορφυραν, ουκ εις ανθρωπων τροφην. αλλ' εις εριον βαφην. _Purpurarius, si postquam purpuram non in hominum cibum, sed ad tingendas lanas comprehenderit._ Immo compertum est, piscatores purpurarum non Purpurarios, sed Murilegulos fuisse vocatos. Adest in Codice Justinianeo Titulus 7. libri 11. de Murilegulis, et Gynaeciariis, quem cap. 56. describemus.
+
 ...
 
 ## Appendix de antiqua et nupera Purpura Dissertatio Johannis Baptistae Capellii veneti pharmacopolae.
