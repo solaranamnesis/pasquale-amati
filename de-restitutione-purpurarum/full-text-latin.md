@@ -72,6 +72,26 @@
 
 ## [Caput 20.]()
 
+## [Caput 21.]()
+
+## [Caput 22.]()
+
+## [Caput 23.]()
+
+## [Caput 24.]()
+
+## [Caput 25.]()
+
+## [Caput 26.]()
+
+## [Caput 27.]()
+
+## [Caput 28.]()
+
+## [Caput 29.]()
+
+## [Caput 30.]()
+
 ...
 
 ## [Appendix de antiqua et nupera Purpura Dissertatio Johannis Baptistae Capellii veneti pharmacopolae.]()
@@ -889,12 +909,12 @@ _Combibit._
 
 Nonnus etiam Dionys. 40. v. 309. scintillas maris, et humidum ignem purpuras vocat, ut flammeam illam scintillationem, qua fulgerent, vividissime exprimeret. Sic inquit:
 
-Και Τυριης σκοπιαζε δεδευμενα φαρεα κοχλω,
-Πορφυρεους σπινθηρας ακο τιζοντα θαλασσης,
-Ηιχι κυων αλιεργος επ αιγιαλλοισιν ερεπτων
-Ενδομυχον χαροπησι γενειασι θεσκελον ιχθυν,
-Χιονεας μορφυρε παρηιδας αιματι κοχλου,
-Χειλεα φοινιξας  διερω πυρι,
+Και Τυριης σκοπιαζε δεδευμενα φαρεα κοχλω,  
+Πορφυρεους σπινθηρας ακο τιζοντα θαλασσης,  
+Ηιχι κυων αλιεργος επ αιγιαλλοισιν ερεπτων  
+Ενδομυχον χαροπησι γενειασι θεσκελον ιχθυν,  
+Χιονεας μορφυρε παρηιδας αιματι κοχλου,  
+Χειλεα φοινιξας  διερω πυρι,  
 _Et Tyria conspexit tincta vestimenta concha_  
 _Purpureas scintillas ejaculantia maris,_  
 _Ubi canis in mari laborans in littore comedens_  
