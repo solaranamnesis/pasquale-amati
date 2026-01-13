@@ -939,6 +939,121 @@ _Non mare si totum velit eluere omnibus undis._
 
 Refert Appianus Alexandrinus in libro de bello Mithridatico triumphasse Pompeium de Mithridate, chlamyde Alexandri magni indutum, ut ajebant: Αυτος δε ο Πομπηιος επι αρματος ην, και τουδε λιθοκολλητου, Χλαμυδα εχων, ως φασιν, Αλεξανδρου του Μακεδονος. _Pompeius ipse curru vehebatur gemmis, auroque splendens, chlamyde, ut ajunt, Alexandri Macedonis indutus._ Plutarchum in ejusdem Alexandri magni Vita referentem, hunc Regem Susis occupatis ibi reperisse immensam purpurarum vim, quae recentissimae viderentur, licet biscentum prius annis ibi repositae fuissent: Οπου φασι και πορφυρας Ερμιονικης ευρεθηναι ταλαντα πεντακισχιλια, συγκειμενης μεν εξ ετων δεκα δεοντων διακοσιον, προσφατον και το ανθος ετι και νεαρον φυλαττουσης. _Ubi ajunt, reperta fuisse quinque millia talenta purpurae Hermionices ante annos 190. ibi repositae, et florem, ac colorem recentem adhuc servantis._ Narrat Plinius lib. 8. cap. 48., praetextam purpuream, qua Servius Tullus signum Fortunae ornaverat, durasse 560. annis usque ad mortem Seiani, qui Tiberii celeberrimus minister fuit, eoque longissimo temporis spatio nec purpureum illius vestis colorem ullo modo dilapsum esse, nec ullum teredinum damnum subisse, quibus teredinibus fortasse marinum ipsum sal, oleum, et bitumen inimicum esset: _Servii Tullii praetextae, quibus signum Fortunae ab eo dicatae coopertum erat, duravere ad Seiani exitum; mirumque fuit, nec defluxisse eas, nec teredinum injurias sensisso annis 560._ Refert Pignorius in suis annotationibus ad librum Cartarii de imaginibus Deorum, anno 1606. prope Romam monumentum quoddam detectum, quod Attilii Calatini fuisse tunc temporis est creditum, et in eo duas vestes laneam, et sericam purpureo colore infectas repertas fuisse. Reliquiae harum vestium purpurearum servantur adhuc Romae in Museo Collegii Romani, et Pisauri in Museo 150. Equitis Annibalis ex Abbatibus Oliverii Jordanii, quem libens volens honoris caussa nomino. Pallidulus erat harum vestium color, similisque colori foliorum aridorum, quem colorem procul dubio tot saeculorum aetas, ipsiusque humecti sepulcri situs produxerat. Vestis lanea quibusdam purpureis latis fasciis, sive taeniis distinctas habebat oras, et proinde toga praetexta erat, uti cap. 41. videbimus. Color vero purpureus similis erat colori lapidis porphyritis, et proinde rubidus Tyrius erat, uti cap. 5. demonstravimus. Incipit Pignorius ipse: _L'anno 1608., il mese di febbraio lavorandosi una vigna de' Signori Lani fuor della porta detta di S. Sebastiano vicino a capo di bove... s'è scoperto un pilo antico coperto, di lavoro schietto, ma bene inteso, e senza memoria alcuna. Si trovò in esso un panno ben conservato di finissima lana, ed un vestito serico, ambedue di quel colore, che mostra la foglia secca, e tiravano al ferrugineo, come dicono i Latini_, (hic Pignorius ferrugineum perperam intelligit colorem rubiginosum, qui fere similis sit aridorum foliorum colori, quemadmodum cap. 3. observavimus,) _con certe strisce larghe nel panno di lana, che erano di colore purpureo, ed odoravano molto ambidue questi vestiti di odore, che teneva dell' aromato._ (Hinc allatis minutis aliquot rationibus, ut illud Attilii Calatini sepulcrum fuisse fidem faciat, addit:) _Il panno, che io stimo, che fosse clamide_ (toga praetexta potius: praetextis enim Romae, chlamydibus militiae tantum Romani utebantur) _molto ricco, e copioso di roba... Il colore di detto panno io non dubito, che fosse di porpora nell' estremità, poichè se ne vede ancora il segno. Nè era la porpora di un sol colore, come alcuni s'immaginano; poichè scrive Vitruvio, che se ne trovava di tirante al nero, di rossa, e di violacea... Questa nostra sarà dell' altra, del color del porfido, che dalla purpura s'è pure buscato il nome di porfirite._ Hinc Tyria purpura fuit, quae rubido colore uti lapis porphyrites gaudebat, quemadmodum cap. 5. animadvertimus.
 
+## Caput 30.
+
+_De mollitie colorum purpureorum._
+
+Tenerrima mollities quarta dos erat, qua purpurae antiquae celebrabantur, ab eodem sale, oleo, et bitumine marino forte et ipsa profecta. Juvenalis Sat. 12.:
+
+_vestem_  
+_Purpuream, teneris quoque Maecenatibus aptam._  
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;Tibullus lib. 4. eleg. 4.  
+_Mollia caris_  
+_Vellera det succis bis madefacta Tyros._
+
+Vopiscus in Vita Carini: _Jam quid lineas petitas Aegypto loquar? Quid Tyro, et Sidone tenuitate perlucidas, micantes purpura, plumandi difficultate pernobiles?_ Lampridius in Alexandri Vita hunc optimum Imperatorem refert vestibus lineis puris non auro, non purpura distinctis indui solitum, caussamque hujus rei interserentem, aurum rigidas efficere vestes, a mollitie vero lini purpurarum mollitiem satis rependi: _Boni linteaminis appetitor fuit, et quidem puri dicens: Si lintei iccirco sunt, ut nihil asperum habeant, quid opus est purpura? In lintea autem aurum mitti etiam dementiam judicabat, quum asperitati adderetur rigor._ Hasce auctoritates experientia sequatur. Vestes purpureas in relato prope Romam monumento repertas inusitata mollitie insignes testatur Pignorius ipse, ut superiore capite audivimus, et reliquiae, quae Romae, et Pisauri sunt, uti eodem capite diximus, eamdem mollitiem confirmant.
+
+Si quatuor, quas memoravimus, antiquarum purpurarum dotes etiam aetate hac nostra mirabiles esse possent, qua certe aetate tot eximiis dotibus ornatum artificium nullum reperitur, multo magis tertia, et quarta dos, nimirum coloris immortalitas, et vestis mollities celebranda fuit ab antiquis, utpote qui lineis fere non utentes, laneisque vestibus tantum corpora circumdantes, eas saepius inquinare, et hinc assiduis loturis apud fullones eas subiicere cogebantur. Quare antiqui populi vel laneas vestes ferre consuevere naturali albo colore donatas, qui numquam loturis dilabitur, vel purpureis coloribus infectas, qui etiam nullis umquam loturis evanescebant, uti est demonstratum.
+
+## Caput 31.
+
+_De materia vestium purpurearum._
+
+Cum antiqui homines ex quatuor materiis distinctis vestes sibi construerent, nimirum lana, serico, lino, bombycino juxta Ulpianum in lib. 23. de auro, et argento legato: _Vestimentorum sunt omnia lanea, lineaque, vel serica, vel bombycina_; hinc eadem omnia vestium genera purpureis coloribus procul dubio infecerunt.
+
+Lana secundum pelles antiquior vestium materies, fucata profecto fuit coloribus purpureis ab antiquis. Res in comperto est, et testimonia fere omnia veterum id probant, quae per hunc librum relata prostant.
+
+Sericum antiquis temporibus apud populos Seres tantum excultam, qui inter Sinas, et Indiam incolebant, Alexandri magni victoriae Graeciae tradidere, et victoriae Asiaticae Romanorum tradidere Italiae. Pari pondere auri id nobile filum a Graecis Latini, a Persis Graeci, et ab Indis, et Seribus Persae comparabant, quousque Justinianus Imperator ova ipsa sericarum erucarum ab Indis in Graeciam traduci curavit, uti est notissimum. Statim vero antiqui nostri homines purpureis coloribus sericum ipsum nobilitavere, summo pretio purpurarum summum serici pretium cumulantes. Pauca veterum testimonia, quae probent, sericum quoque purpureum fuisse, afferimus, aliis omissis. Seneca Hippolyti Act. 2. Scen. 1.:
+
+_Removete famulae purpura, atque auro illitas_  
+_Vestes, procul sit Tyrii muricis rubor,_  
+_Quae fila ramis ultimi Seres legunt._  
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;Martialis lib. 3. epigr. 82.  
+_Effultus ostro, sericisque pulvinis._  
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;Claudianus in 4. Honorii Consulatum:  
+_tribuere colorem_  
+_Phoenices, Seres subtegmina, pondus Hydaspes._  
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;Boethius de Consol. Philosophiae lib. 2. metr. 5.:  
+_Non lucida vellera Serum_  
+_Tyrio miscere veneno._  
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;Sidonius Apollinaris Carm. 15.  
+_cujus bis coctus aheno_  
+_Serica Sidonius fucabat stamina murex._  
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;D. Paullinus Poem. 22.:  
+_Isaias rigida cingendas veste minatur,_  
+_Quae modo purpureis serica mixta gerunt:_
+
+Vopiscus in Aureliani Vita: _Quum ab eo uxor sua peteret, ut unico pallio blatteo serico uteretur._ Lex 1. Lib. 4. tit. 40. in Justinianeo Codice: _Fucandae, atque distrahendae purpurae vel in serico, vel in lana._
+
+Linum et ipsum antiquissimam vestium materiem rarius purpureis maduisse coloribus reperimus. Cleopatram legimus tantum famosam Aegypti Reginam per notissimam luxuriem purpureis decorasse coloribus linea vela suae navis praetoriae in celebri apud Actium pugna, et Romanos purpureis coloribus fucasse tantum amplissima linea vela, quibus theatra, et amphitheatra ad arcendum solem, et pluviam obtegerent, quaeque vela, et scenam, et arenam, et spectatores, et totum illud maximum concilium purpureo colore floridissime inficerent, et inflammarent. Duobus hisce casibus exceptis, antiquos legimus lineorum magis candore, quam purpureo colore esse delectatos. Plinius lib. 19. cap. 1.: _Tentatum est tingi linum quoque, et vestium insaniam accipere... Velo purpureo ad Actium cum M. Antonio Cleopatra venit, eodemque effugit. Hoc fuit imperatoriae navis insigne. Postea in theatris tantum umbram fecere, quod primus omnium invenit Q. Catulus, cum Capitolium dedicaret. Carbasina deinde vela primus in theatro duxisse traditur Lentulus Spinther Apollinaribus ludis. Mox Caesar Dictator totum forum Romanum intexit, viamque sacram a domo sua ad clivum usque Capitolinum, quod munere ipso gladiatorio mirabilius visum tradunt... Vela nuper colore caeli stellata per rudentes, terra etiam in amphitheatris principis Neronis rubente... Cetero mansit candori pertinax gratia._ Plutarchus in Vita Antonii refert pariter de Cleopatra, ipsam velis purpureis instruxisse navim, qua primum ad ipsum Antonium, a quo multis litteris evocata fuerat, contendit: Ου ουτω κατεφρονησε, και κατεγελασε του ανδρος, ωσττε πλειν ανα τον Κυδνον ποταμον εν πορθμιω χρυσοπρυμνω, των μεν ιστιων αλουργων εκπεπετασμενων, της δ' ειρεσιας αργυραις κωπαις αναφερομενης προς αυλον αμα συριγξι, και κιθαραις συνηρμομενης. _Adeo Antonium ludibrio, risuique habuit, ut Cydno amne subveheretur lembo, cujus aurea puppis erat, velis passis purpureis, remis argenteis, qui ad tibiarum, fistularum, cithararumque sonum concinne agerentur._ Lucretius lib. 4. de natura rerum:
+
+_Et volgo faciunt id lutea, russaque vela,_  
+_Et ferrugina, cum magnis intenta theatris,_  
+_Per malos volgata, trabeisque trementia flutant._  
+_Namque ibi consessum caveai subter, et omnem_  
+_Scenai speciem, patrum, matrumque, deorumque_  
+_Inficiunt, coguntque suo fluitare colore._  
+_Et quanto circum mage sunt inclusa theatri_  
+_Moenia, tam magis haec intus perfusa lepore_  
+_Omnia conrident conrepta luce diei._
+
+Contra ea byssus subtillimum lini Aegyptii genus prae ceteris lineis vestibus purpura tingi consuevit. Fortunatus lib. 7. poem. 3.:
+
+_Veste superposita bis cocto purpura bysso,_  
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;Idem lib. 2.  
+_Alter palmatae, trabeae nitet alter honore,_  
+_Pingit et ornatum gemma, aurum, purpura, byssus:_
+
+Salomon in Proverb. cap. 31.: _Purpura, et byssus indumentum ejus._ B. Lucas cap. 16. v. 19. _Induebatur_ (Epulo) _purpura, et bysso._
+
+Bombycinum tandem erat serici genus, quod in Arabia, Assyria, et Insula Coo a vermibus educebatur, qui longe a sericis erucis differebant juxta Aristotelem lib. 5. cap. 19. de histor. anim., Plinium lib. 11. cap. 22. 23., Isidorum lib. 19. cap. 22., et antiquum Juvenalis Scholiasten ad vers. 260. Sat. 6. Hoc vero bombycinum, utpote dotibus inferioribus donatum, serici postea cessit mollitiei non minus, quam subtilitati, et diuturnitati, penitusque in desuetudinem abiit, cum sericum ipsum Justiniani temporibus allatis sericis erucis ubique in Graecia vulgatum est. Tum vero bombycinum vulgi errore ad illud lini genus transiit significandum, quod nunc _cotone, bambace, bambagia_ appellamus, nomine satis aperte ex Latino verbo _bombycinum_ contorto. Veri autem simile est, Coas vestes sua subtilitate, et pelluciditate celebres, quae ex bombycino ibi producto componerentur, purpura etiam infectas fuisse. Horatius lib. 4. Ode 13.
+
+_Nec Coae referunt jam tibi purpurae,_  
+_Nec clari lapides tempora._  
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;Juvenalis Sat. 8.:  
+_Spartana chlamys, conchylia Coa._
+
+## Caput 32.
+
+_De discrimine vestium purpurearum._
+
+Antiqui homines principes vestibus totis purpureis per summam luxuriem induebantur. Achilles Tatius lib. 2. de Clitophontis, et Leucippes amoribus: Εωνητο δε η κορη τα προς την γαμον περιδεραιον μεν λιθων ποικιλων, εσθητα δε το παν μεν πορφυραν. _Emebat vero puella ad nuptias monile ex variis gemmis, vestem vero totam purpuream._ Etiam Commodus Imperator, uti ait Dion lib. 18. induebatur χιτωνα ολοπορφυρον _tunicam totam purpuream_. Circa hujusmodi vestem quoque Alexandrum magnum solitum irridere Antipatrum accipimus a Plutarcho in ejus Vita: Αντιπατρος τα ενδον ολοπορφυρος. _Antipater in interiori parte totus est purpureus._ Stephanus 3. in epistola ad Alduinum tom. 5. Conciliorum generalium B. Dionysium refert se vidisse indutum _pallio toto purpureo._
+
+Plurimi vero satis esse ducebant, si vestes naturali albo colore donatas nonnullis tantum taeniis, fasciis, vittis, aut institis purpureis ornarent, quas taenias nos Itali _galloni, o guernizioni_ vocamus, iisque taeniis sive per medias vestes, sive circa vestium oras ductis. Septuaginta Interpretes in cap. 3. Isaiae: Και τα περιπορφυρα, και τα μεσοπορφυρα. _Vestes purpura ornatas, sive circa oras, sive circa medium._ Et Basilius ad eumdem locum: Τον εν τη εσθητι κοσμον των καλλωπιζομενων γυναικων, ως περιεργον διαβαλλει πορφυραν ποτε μεν κατα τα ακρα παρυφανοντων, ποτε δε κατα το μεσον αυτην εντιθεντων. _Ornatum mulierum, quo gloriam captant, tamquam superfluum perstringit; nam aut vestium oris attexebant purpuram, aut eam parti mediae immittebant._
+
+## Caput 33.
+
+_De clavis purpureis._
+
+Taeniae autem istae aut vittae purpureae per medias vestes ductae clavi a 
+Latinis dicebantur, quod fere longi clavi viderentur. Horatius lib. 1. Sat. 4.
+
+_et latum demisit pectore clavum._
+
+Quem locum ita Acron interpretatur: _Demisit pectore, idest media parte corporis._ B. Hieronymus lib. 2. Comment. in Isaiam ita memoratum locum Isaiae ipsius interpretatur: _Pro fascia pectorali, quam interpretatus est Symmachus, septuaginta tunicam μεσοπορφυραν, idest clavatam purpura transtulerunt._
+
+Hi autem clavi, sive taeniae, aut vittae, aut fasciae purpureae per medias vestes ductae, eaedem erant, quae adhuc descendentes visuntur ante pectus, et post tergum a summo ad imum in mediis dalmaticis, sive colobiis, et penulis, sive planetis, quibus nostri Sacerdotes sacra facturi utuntur. Etymologicum lib. 19. cap. 22.: _Dalmatica vestis primum in Dalmatia provincia Graeciae texta est, tunica sacerdotalis candida cum clavis ex purpura._ Rabanus Maurus lib. Instit. Cleric. cap. 19. _Haec vestis_ (dalmatica) _in modum crucis est facta, et passionis Domini indicium est. Habet quoque et purpureos tramites ipsa tunica a summo usque ad ima ante et retro descendentes, nec non per utramque manicam._ Abdias in Hist. Apostolica lib. 9. de B. Bartholomaeo loquens: _Vestitur colobio albo clavato purpura._ Stephanus 3. in memorata ad Alcuinum epistola B. Dionysium se vidisse refert, _pulchra facie, capillis candidis, colobio indutum candidissimo purpura clavato._ B. Dorotheus Archimandrita doctrina 1.: Εχει δε το κολοβιον ομων τι ποτε πορφυρουν, τι θελει ειναι το σημειον το πορφυρουν. Εκαστος στρατευομενος τω βασιλει πορφυραν εχει εις το χλανιδιον αυτου. Επειδη γαρ ο βασιλευς πορφυραν φορει, παντες οι στρατευομενοι αυτω βαλλουσι πορφυραν εις τα χλανιδια αυτων. Τυτεστι το βασιλικον ενδυμα, ινα δια τουτου δειξωσιν οτι του βασιλεως εισι, και οτι αυτω στρατευονται. Ουτω και ημεις βαμβανομεν το σημειον το πορφηρουν εις το κολοβιον ημων, δεικνυοντες, οτι το χριστω εστρατευθημεν, και κρεωστουμεν υπομειναι ολα τα παθη μετα αυτου οσα υπεμεινεν δι ημας. _Habet vero colobium nostrum clavum purpureum. Quidnam designat clavus ille purpureus? Unusquisque regi militans habet purpuram in sago suo. Ex quo enim rex purpuram ferre coepit, omnes qui militant ei, immittunt purpuram in sagis suis, ut inde appareat regios illos esse, et regi commilitare. Sic et nos in colobio nostro purpureum clavum apponimus, ut demonstremus nos Christo commilitare, et debere tantum illius caussa perferre, quantum ille nostri caussa pertulit._ Eucherius lib. 2. ad Salonium: _Penula in Apostolo Latinum est. Est autem quasi lacerna descendentibus clavis._ Sedulius ad Epist. 2. B. Pauli ad Timotheum cap. 4. in Biblioth. Patrum tom. 5. part. 1.: _Penula Latinum est, idest lacerna clavata._
+
+Hae etiam taeniae purpureae per medias vestes ductae, non tantum clavi, sed etiam viae, virgae, aliisque hujusmodi nominibus appellabantur, quae earumdem taeniarum longitudinem, et figuram clare significarent. Servius ad lib. 8. Aeneidos: _Virgatis lucent sagulis. Sagula virgata, quae habent in virgarum morem deductas vias. Et bene adlusit ad Gallicam linguam, per quam virga purpura dicitur. Virgatis ergo, ac si diceret purpuratis._ Julius Pollux Onomastici lib. 7. cap. 13. Αι μεν τοι εν τοις χιτωσι πορφυραι ραβδοι παρυφαι καλουνται. _Virgae autem purpureae in tunicis vocantur paryphae._ Antiquus Juvenalis Scholiastes ad Sat. 7. _Galli in sacris utuntur tunica in modum organi, utrimque decrescentibus virgulis purpureis._
+
+Hae ipsae taeniae a Graecis vocabantur σημαδια _signa_, χωραι _viae_, σωληναι, _canales_, similibusque vocibus, quae earumdem taeniarum longam figuram ostenderent, quemadmodum vestis hujusmodi taeniis ornata πορφυρα ενυφασμενη, παρυφες, παραλουργες, παραπορφυρος a Graecis quasi vestis taeniis purpureis intexta dicebatur. Photius in excerptis Damascii in Vita Isidori: Κολωβων χιτωνα... πορφυροις πλατεσι σημαδιοις κεκοσμημενον. _Colobium, aut tunicam purpureis latis signis, aut clavis ornatam._ Achilles Tatius de Clitophontis, et Leucippes amoribus lib. 2.: Ενθα δε ταις αλλαις εσθησιν η χωρα της πορφυρας. _In aliis autem indumentis erat via purpurea._ Cedrenus in Vita Tiberii 2.: Των μερων φορουντων στολας σωληνωτας απο βλαττιου οξεος. _Partibus circi ferentibus vestes ornatas canalibus purpurae acutae, aut rubicundae._ Antiquum Lexicum Graecum: Πορφυρα ενυφασμενη. _Clavus._ Hesychius in suo Onomastico: Παρυφη, η εν τω χιτωνι πορφυρα. _Paryphe vocatur purpura in tunica._ Julium Pollucem mox audivimus dicentem. Αι μεν τοι εν τοις χιτωσι πορφυραι ραβδοι παρυφαι καλουνται. _Virgae purpureae in tunicis vocantur paryphae._ Idem alibi. Το δε παρυφες, και παραλουργες, το εκαθερωθεν εχων παρυφασμενην πορφυραν. _Vestis paryphe, et paralurges illa est, quae utrimque habet intextos clavos purpurae._
+
+## Caput 34.
+
+_De limbis purpureis._
+
+Taeniae autem purpureae circa oras vestium ductae limi, limbi, fimbriae, et institae maxime in muliebribus vestibus dicebantur. Hyginus de limitibus: _Limites autem appellati a limo antiquo verbo, idest transversi; nam et limum cinctum ideo, quod purpuram transversam habeat._ Isidorus lib. 19. cap. 33. _Limus est cinctus, quem publici habent servi, et dictus limus, quia transversas habet purpuras._ Servius ad lib. 2. Aeneidos: _Alii limbum clavum transversum in veste existimant._
+
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;Virgilius lib. 4. Aeneidos:  
+_Sidoniam picto chlamydem circumdata limbo._  
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;Et lib. 5. Aeneidos:  
+_Victori chlamydem auratam, cui plurima circum_  
+_Purpura Maeandro duplici Moelibea cucurrit._
+
+Fimbrias autem purpureas hyacinthinas ipse Deus Hebraeos ferre jussit Numer. cap. 15. _Loquere filiis Israel, et dices ad eos, ut faciant sibi fimbrias per angulos palliorum, ponentes in eis vittas hyacinthinas._ Julius Pollux lib. 4. cap. 18. segm. 120.: Ενιαις δε γυναιξι, και παραπηχυ, και σιμμετρια, οπερ εστι χιτων ποδηρης, αλουργος κυκλω. _Nonnullae etiam mulieres armillam habent, et symmetriam, quae est tunica talaris purpuream fimbriam habens._ Idem Pollux lib. 7. cap. 13. segm. 48. Πορφυρομιγης δε εσθης, και χλαμυς, ουχ η συνυφαντος πορφυρα, αλλα τη εξ εριου φαιου ουση καταρχας εμεμικτο. _Purpura mixta autem vestis, aut chlamys, non purpurae mixta simul fuit, sed hac e fusca lana composita ipsis fimbriis purpura admiscebatur._ Et segm. 52. Τα δε περινησσα, υποκροσσον εστι περιβλημα, εχον τα νηματα εξηρτημενα, η πορφυρα κυκλω τα τελυ του υφασματος, περιερχεται νησοι σχημα πιουσα τη περιρροη του χρωματος. _Perinessa vero fimbriatus est habitus fila dependentia habens, aut purpura circumquaque oris contexta est, coloris hujus circuitione insulae speciem exhibens._ Et haec fuit instita illa, quam Latini vocabant, quamque Latinae mulieres ferebant, uti nemo nescit.
+
+Observandum vero, hasce vestes non totas purpureas, sed clavatas, aut ornatas clavis, sive taeniis purpureis, sive in medio, sive ad oras positis, vocari proprie consuevisse purpuratas, ut a vedibus totis purpureis distinguerentur. Audivimus Servium dicentem ad lib. 8. Aeneidos: _Virgatis lucent sagulis: Sagula virgata, quae habent in virgarum morem deductas vias... Virgatis ergo, ac si diceret purpuratis._ Sosipater Carisius: _Hic clavus, idest impurpurata vestis._ Hinc ita intelligendus B. Damasus Papa in Vita Eutychiani: _Qui hoc constituit, ut quicumque fidelium martyrem sepeliret, sine dalmatica, aut colobio purpurato nullatenus sepeliret._ Ita quoque intelligendus Vopiscus in Carini Vita: _Pallio aurato, atque purpurato._ Ita demum intelligendi quotquot scriptores purpuratarum vestium meminerint.
+
 ...
 
 ## Appendix de antiqua et nupera Purpura Dissertatio Johannis Baptistae Capellii veneti pharmacopolae.
