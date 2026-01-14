@@ -1131,6 +1131,57 @@ I. C. in 50. 32. de auro, et argento legato: _Et quae his accessionis vice acced
 
 Interdum vero saltem picturae opere phrygionico adplicabantur, quod nos dicimus _a ricamo_. Plinius lib. 8. cap. 48.: _Pictas vestes jam apud Homerum fuisse, unde triumphales natae. Acu facere id Phryges invenerunt, ideoque phrygiones appellati sunt._ Suidas in voce Chlamys ait Numam Pompilium εφευρε την χλαμυδα στολην, ουκ εξωθεν επιθεις, αλλ εσωθεν εμβαλων την της πορφυρας βαφην, _tulisse chlamydem non immittentem ab ex teriori parte_, (idest non insuentem) _sed iniicientem ab interiori parte_ (idest acu pingentem) _purpuram_. Hactenus generatim, mox peculiariter de antiquorum purpureis vestibus.
 
+## Caput 39.
+
+_De tunica laticlavia._
+
+Laticlavia tunica praeseferebat clavos sive ex purpura, sive ex auro, sive ex cocco, sive ex albo, qui latiores essent, unde etiam nomen accepit. Julius Pollux Onomastici lib. 7. cap. 14.: πλατυπορφυρα ιματια, _laticlavias vestes_. Silius Italicus Punicorum lib. 3. asserit Sacerdotes Herculis Gaditani laticlavia veste indutos.
+
+_Sacrificam lato vestem distinguere clavo._
+
+Photius in Excerptis Damascii in vita Isidori habet Λαμπραν κωρην ευζωνον, κολωβον χιτωνα μελινοχρουν ανεζοσμενην πορφυροις πλατεσι σημαδιοις κεκοσμημενην. _Formosam virginem, et bene cultam, habentem tunicam mellini coloris latis clavis purpureis ornatam._
+
+Unus omnino erat clavus in laticlavia veste, quemadmodum unus omnino est clavus latus in mediis colobiis, sive dalmaticis, et penulis, sive planetis nostris. B. Dorotheum Archimandritam audivimus dicentem: _Habet vero colobium nostrum clavum purpureum._ Audivimus quoque Chronicon Alexandrinum: _Loco purpurei aureum regium clavum._ Audivimus denique Xenophontem et Curtium citatis locis in cap. 36. tunicam regum Persarum uno tantum clavo albo ornatam referentes. Herodianus narrat lib. 5. Romanos Magistratus coactos ab Elagabalo sacrificia facere χιτωνας ποδηρεις και χειροδωτους νολω φοινικων εν μεσω φεροντες μιαν πορφυραν, _indutos talares tunicas, et manicatas juxta morem Phoenicum, habentes unum clavum purpureum in medio._ Agathias lib. 3. refert Tzatem Latiorum regem ferre solitum λευκην δε μονον ου μεν τοι πανταπασι γε κοινην ουτω, και ειθισμενην. αμφι γαρ το μεσαιτατον εκεινη χρυσω υφασματι κατερωθεν καταλαμπεται, _chlamydem albam, non tamen omnibus communem, et consuetam. Circa medium enim illius avreus clavus intextus utrinque apparet._
+
+Ceterum haec tunica laticlavia propria erat virorum principum, et ditiorum. Lucianus in Demonacte: Ιδων δε τινα των ευπαρυφων επι το πλατει της πορφυρας. _Videns autem ex bene cultis unum, ob latitudinem sui clavi purpurei superbientem._ Tertullianus in libro de pallio cap. 4. de Saturni Sacerdotibus loquens. _Latioris purpurae ambitio Saturnum commendat._ Hujusmodi latiores clavos purpureos, sive per mediam vestem, sive per oras, et fimbrias ductos, qui clavi phylacteria vocabantur ab Hellenistis, gestabant superbissimi Scribae, et Pharisaei, de quibus Evangelistae loquuntur. B. Epiphanius lib. 1. haeresi 15. Scribarum: Και φυλακτηρια παρ εαυτοις επι τα ιματια επετιθετο, τουτεστι πλατεα σηματα πορφυρας... αλλ' επειδαν στολας ειτ' ουν αμπεχονας οι τοιουται ανεβαλλοντο και δαλματικας, ειτ' ουν κολοβιωνας εκ πλατυσημον δια πορφυρας αλουργουφεις κατεσκευασμενας, τα δε σηματα της πορφυρας φυλακτηρια ειωθασιν οι ηκριβωμενοι μετονομαζειν. _Et ferebant in vestibus phylacteria, quae sunt latae quaedam taeniae, aut clavi purpurei. Utebantur enim hi stolis, et vestibus, quasi dalmaticis, aut colobiis, quae hujusmodi latis purpureis taeniis ornabantur. Qui autem diligentius loquuntur, phylacteria hasce taenias, aut clavos vocant._ Nicetas Choniates Thesauri orthodoxi lib. 1. cap. 39. de iisdem Pharisaeis verba faciens ita loquitur ex fide Petri Morellii, qui latinam hujus operis interpretationem dedit: _Dalmaticis, quae nunc colobia dicuntur, purpuraque praetexuntur, induti phylacteria sua ostentabant._ Hinc merito hujusmodi superbiam vestium et animi saepius verbis acerbis notavit divinus noster Redemptor, uti habetur praesertim in Matthaei Evangelio cap. 23.: _Dilatant enim phylacteria sua, et magnificant fimbrias._ Hinc etiam Romani Senatores laticlavia tunica induebantur: Juvenalis Sat. 1. v. 106. de lato clavo Romanorum Senatorum loquens:
+
+_Quid confert purpura major_  
+_Optandum?_
+
+Acron ad Sat. 5. lib. 1. Horatii: _Praetextam, et latum clavum. Latum clavum purpuram dicit, quae in pectore extenditur Senatorum._
+
+Latitudo vero hujusce lati clavi, aut latae taeniae purpureae ante, et retro per mediam vestem ductae, fere palmi unius erat. Id demonstrat palmaris latus clavus, qui adhuc in mediis dalmaticis, et planetis nostris adfigi solet, tum trabeae latus clavus, quae ideo trabea vocabatur, quod trabales, aut palmares hos clavos habebat, tum denique latitudo palmaris lati clavi vestis palmatae, quae ab eadem lati clavi palmari latitudine nomen accepit juxta Festum: _Tunica autem palmata a latitudine clavorum dicebatur, quae nunc a genere picturae appellatur._ Balearidum vero incolas latum clavum invenisse referunt Strabo lib. 2. et Eustathius in Dionysium Periegetem.
+
+## Caput 40.
+
+_De tunica angusticlavia._
+
+Angusticlavia autem tunica clavos ipsos angustiores habebat, unde etiam nomen accepit. B. Hieronymus in epist. 22. tom. 1. ad Eustochium: _Purpura tantum in veste tenuis._ Spartianus in Severi Vita: _Hic tam exiguis vestibus usus est, ut vix tunica ejus aliquid purpurae haberet._
+
+Duo vero fere erant clavi in angusticlavia veste, uti duo tantum angusti clavi in dalmaticis, et planetis nostrorum sacerdotum adiiciuntur. Jam audivimus scriptores ecclesiasticos cap. 33., et 36. relatos, duos dalmaticarum clavos memorantes. Eisdem scriptoribus cumuletur Apuleius lib. 2. Floridorum: _Habebat indutui ad corpus tunicam interulam tenuissimo textu, triplici licio, purpura duplici._ Horatius in Arte poetica vers. 15.:
+
+_Purpureus late qui splendeat unus et alter_  
+_Assuitur pannus._
+
+Aliquando vero etiam tribus clavis vestes ornabantur. Statius lib. 8. Thebaid. v. 565.:
+
+_triplici velaverat ostro_  
+_Surgentes etiamnum humeros, et levia mater_  
+_Pectora._
+
+Hoc tamen puerorum tantum proprium esse debuit, nam plures, quam duo clavi, dedecori habebantur ab antiquis. Quintilianus lib. 3.: _Ut affert lumen clavus purpurae loco insertae, ita certe neminem deceat intexta pluribus notis vestis._
+
+Ceterum hae laticlaviae tunicae humiliorum propriae fuerunt, et hinc etiam equitum Romanorum. Cum itaque laticlaviis tunicis senatores, equites angusticlaviis utebantur. Plinius inquit lib. 9. cap. 35.: _Purpura distinguit ab equite curiam._ Paterculus ait Maecenatem vixisse _angusto clavo pene contentum._ Statius lib. 5. Silv. 2. v. 17.:
+
+_non sanguine cretus_  
+_Turmali, trabeaque Remi, nec paupere clavo._  
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;Idem Statius lib. 4. Silv. 5. v. 41.  
+_Hic parvus inter pignora curiae_  
+_Contentus arcto lumine purpurae_  
+_Crescis._
+
+Tantam vero gloriolam ex hisce clavis tunicarum sibi captabant antiqui, ut quidam pellucidis togis ad ostentandos subiectarum tunicarum clavos uterentur. Varro apud Nonium in vocibus _Tunica, et Vitream: Quam istorum vitreae togae ostentant tunicae clavos._
+
 ...
 
 ## Appendix de antiqua et nupera Purpura Dissertatio Johannis Baptistae Capellii veneti pharmacopolae.
