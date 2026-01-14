@@ -1054,6 +1054,83 @@ Fimbrias autem purpureas hyacinthinas ipse Deus Hebraeos ferre jussit Numer. cap
 
 Observandum vero, hasce vestes non totas purpureas, sed clavatas, aut ornatas clavis, sive taeniis purpureis, sive in medio, sive ad oras positis, vocari proprie consuevisse purpuratas, ut a vedibus totis purpureis distinguerentur. Audivimus Servium dicentem ad lib. 8. Aeneidos: _Virgatis lucent sagulis: Sagula virgata, quae habent in virgarum morem deductas vias... Virgatis ergo, ac si diceret purpuratis._ Sosipater Carisius: _Hic clavus, idest impurpurata vestis._ Hinc ita intelligendus B. Damasus Papa in Vita Eutychiani: _Qui hoc constituit, ut quicumque fidelium martyrem sepeliret, sine dalmatica, aut colobio purpurato nullatenus sepeliret._ Ita quoque intelligendus Vopiscus in Carini Vita: _Pallio aurato, atque purpurato._ Ita demum intelligendi quotquot scriptores purpuratarum vestium meminerint.
 
+## Caput 35.
+
+_De clavis, et limbis aureis._
+
+Nonnulli etiam antiqui majori luxuria vestes ferebant totas purpureas, aureis clavis, aut taeniis distinctas, sive per medium, sive per oras. Heliodorus Aethiopicon lib. 3. Χιτωνα δε αλουργον ποδηρη χρυσαις ακτισι καταπαστον ημφιεστο. _Induebatur talarem tunicam purpuream radiis, aut clavis aureis distinctam._ Plutarchus in Demetri Vita eum refert indutum fuisse χρυσοπαροφοις αλουργισιν, _vestibus purpureis auro clavatis._ Lucianus libro contra indoctum: Και η πορφυρα δε ενεπρεπε της εσθητος, η μεταξυ του χρυσου διεφαιναιτο. _Vestem ornabat ipsa purpura, quae inter aureos clavos videbatur._ Dion. lib. 18. refert Commodum εισιον χιτωνα ολοπορφυρον χρυσω καταπαστον, χλαμυδα τε ομοιαν, _induisse tunicam totam purpuream auro clavatam, et chlamydem similem._ Herodianus lib. 1. ipsum Commodum ait loco Romanae vestis αμφιεννυτο τε αλουργεις και χρυσουφεις εσθητας, _indutum vestibus purpureis auro clavatis._ Procopius libro aedificiorum Justiniani, de Satrapibus Armeniae loquens, quibus potestatem ferendi vestes auro clavatas Justinianus ipse dederat: Χρυσω δε η της πορφυρας κατειληπτο μοιρα, εφ' ης ειωθεν η της αλουργιδος εμβολη γινεθαι. _Auro vero illa pars clavata est, cui solet purpura immitti._ Flavius Vopiscus in Taciti Vita: _Auroclavatis vestibus idem interdixit._ Idem Vopiscus in Aureliani Vita habet _tunicam auroclavatam._ Papias in Onomastico: _Chrysoclavus, aurata purpura._ Anastasius in Leonis 3. Vita: _Vestem chrysoclabam... aliam vestem de blattin habentem in medio crucem de chrysoclabo._
+
+Hi autem aurei clavi proprie segmenta a Latinis appellabantur. Antiquus Juvenalis Scholiastes ad Sat. 6.: _Segmenta dicit vittam pendentem e vestibus intextam auro._ Valerius Maximus lib. 5. cap. 2.: _Permisit quoque his_ (Populus Romanus feminis) _purpurea veste, et aureis uti segmentis._ Hinc Sidonius Apollinaris lib. 6. cap. 8. segmenta palmatae tribuit, quae vestis, ut cap. 43. observabimus, vestis erat aureis clavis ornata, immo ea segmenta crepitantia vocat, quod auro apprime convenit: _Illam Sarranis ebriam succis inter crepitantia segmenta palmatam plus picta oratione, plus aurea convenustavit._ Ennodius quoque in Panegyrico vocat consules positos in segmentis, nimirum palmata indutos, qua veste imperii tempore utebantur Consules; _Ille annus habuit Consulem, qui rempublicam non tam sollicitudine, quam opinione tueretur, quo in segmentis posito, quae ab hostibus sumpta fuerunt arma, tremuerunt._ Ita igitur intelligendus Ovidius lib. 3. de arte amandi:
+
+_Quid de veste loquar? Nec vos segmenta requiro,_  
+_Nec quae de Tyrio murice lana rubes._
+
+Ita quoque alii scriptores intelligendi, qui segmentorum in vestibus mentionem fecerint.
+
+Iidem ipsi aurei clavi patagia etiam antiquitus a παταγειον _clavus_ vocabantur. Nonius: _Patagium aureus clavus, qui pretiosis vestibus assui solet, quae patagiata dicitur, et patagiarii, qui hujusmodi opera faciunt._ Hinc Tertullianus lib. de Pallio ita de pavone: _Omni patagio inauratior._
+
+Aurei autem clavi ad oras vestium appositi, appellari consuevere limbi. Ovidius lib. 5. Metamorphoseon:
+
+_Indutus chlamydem Tyriam, quam limbus obibat_  
+_Aureuns, ornabat aurata monilia collum._
+
+Hinc limbus vestis ipsa regia vocabatur, quod hujusmodi aureum limbum haberet. Isidorus in Glossis: _Limbus navis piratica, vel clavus in veste regia, sive ipsa vestis._ Trebellius Pollio de Zenobia: _Ad conciones galeata processit cum limbo purpureo._
+
+Hujusmodi autem limbi aurei paragaudae vocabantur etiam a scriptoribus, uti a Salmasio, et Casaubono probatum est in notis ad Vopiscum, quae paragaudae perpetuo vetitae fuerunt a Theodosio magno, ut habetur in L. undecima Codicis Justinianei ad Tit. de vestibus holoberis, et auratis, et de intinctione sacri muricis.
+
+Neque haec vetatio mira. Aurei enim isti clavi, et limbi regum tantum proprii fuerunt. Chronicon Alexandrinum: Εχον αντι πορφυρου χρυσουν βασιλικον ταυλιν. _Habens loco purpurei aureum regium clavum._ Anastasius in Hormisda: _Pallia holobera blattea cum tabulis auro tectis de chlamyde, vel stola imperiali._ Alia circa id testimonia referre supersedemus, quod plura horum similia inferioribus capitibus saepius occurrent.
+
+Animadvertendum denique vestes hisce aureis clavis ornatas vocatas fuisse auratas, ut totas aureas excluderent. Papias in Onomastico: _Chrysoclavus. Aurata purpura._ Ita igitur omnes scriptores intelligendi, qui auratarum vestium meminerunt.
+
+## Caput 36.
+
+_De clavis, et limbis candidis, et coccineis._
+
+Ferebant etiam antiqui vestes totas purpureas taeniis, aut clavis albis ornatas. Jam audivimus Plutarchum referentem jocum Alexandri in Antipatrum: Επανουν των ενιων του Αντιπατρου την ευτελειαν ως αθρωπτως διαιτωμενου και αυστηρως. εξωθεν, ειπεν, Αντιπατρος λευκοπαρυφος εστι, τα δε ενδον ολοπορφυρος. _Laudantibus nonnullis Antipatri frugalitatem aspere, et duriter viventis, Antipater quidem, dixit, extra vestes habet albis clavis ornatas, intus vero totus purpureus est._ Statius lib. 2. Thebaidos:
+
+_et ab arbore casta_  
+_Nectent purpureas niveo discrimine vittas._
+
+Hujusmodi quoque erat regum Persarum vestis juxta Xenophontem lib. 8. Cyropaediae: Επι δε τουτας ηδη αυτος εκ των πυλων προυφαινετο ο Κυρος εφ' αρματος ορθην εχων την τιαραν, και χιτωνα πορφυρουν μεσολευκον. αλλω δ' ουκ εξεστι μεσολευκον εχειν. _Post haec portis prodibat ipse Cyrus curru rectum tiara ferens, indutusque tunica albo clavo in media parte ornata: nulli enim licet ferre tunicam albo clavo in medio distinctam._ Curtius lib. 2.: _Habebat Darius purpuream tunicam, cui medium album intextum erat._ Et lib. 3.: _Cultus regis_ (Darii) _inter omnia luxuria notabatur: purpureae tunicae medium album intextum erat._ Idem lib. 6.: _Cidarin Persae regium capitis vocabant insigne. Hoc caerulea fascia albo distincta circuibat._ Et eodem libro: _Itaque purpureum diadema distinctum albo, quale Darius habuerat, capiti circumdedit._ Forsitan hi candidi clavi, quibus regum Persarum vestis fulgebat, purpura illa candida constabant, quae in Perside ope olei albi fucabatur, quemadmodum cap. 25. observavimus. Graeci autem Imperatores limbos vestium candidos gestare consueverant. Corippus in Panegyrico Justini 2. v. 116.:
+
+_Substrictoque sinu vestis divina pependit_  
+_Poplite fusa tenus pretioso candida limbo._
+
+Aliquando vero etism hi clavi medias vestes findentes coccinei erant. Lampridius in Alexandri Vita: _Convivium neque opiparum, neque nimis parcum, sed nitoris summi fuit, ita tamen, ut pura mantilia mitterentur, saepius cocco clavata._ Honorius Augustodunensis in Gemma animae lib. 1. cap. 212.: _Dalmatica duas coccineas lineas ante et retro habet, quia vetus, et nova lex dilectione Dei, et proximi refulget. Iidem tramites purpurei designant sanguinem. Christi pro duobus populis effusum._ Alcuinus cap. 4. de celebratione missae: _Habet_ (dalmatica) _et coccineas virgulas sanguinem Christi pro salute mundi effusum demonstrantes._ Amalaricus lib. 2. cap. 21. de officiis Ecclesiasticis: _Ipsa dalmatica duas coccineas lineas habet retro, similiterque in anteriori parte, quia vetus testamentum, et novum rutilant dilectione Dei, et proximi._
+
+Referemus cap. 41. Romanam trabeam coccineis clavis et ipsam fuisse insignem.
+
+## Caput 37.
+
+_De vestibus pictis._
+
+Gestabant denique antiqui homines totas purpureas vestes aureis picturis mirifice insignitas. Aelianus lib. 4. cap. 22. lautos Athenienses inducit hujusmodi pictis vestibus indutos: Αλουργη μεν ημπειχοντο ιματια, ποικιλους δε ενεδυνον χιτωνας. _Pallia ferebant purpurea, tunicasque pictas._ Hae picturae vero vel astra aurea, vel homines, et animantia aurea referebant. Ciphilinus in Excerptis: Τα γε μεν παραπετασματα τα δια του αερος διατιθεντα, οπως τον ηλιον απερυκει, αλουργα ην, και εν μεσω αυτων αρμα ελαυνων ο Νερων ενεστικτο, ασυ τερες δε χρυσοι περιξ επελαμπον. _Vela etiam, quae per aerem extendebantur ad solem arcendum, purpurea erant, et in illis acu pictus erat Nero currum regens, aureis stellis circumdatus._ Chronicon Alexandrinum: φορεσας στεφανον, και χλαμιδιν ασπρον ολοσηρικον εχων αντι πορφυρου χρυσουν βασιλικον ταυλιν, εν ω υπερχεν εν μεσω στηθαρια αληθειδιν μικρον το βασιλικου χαρακτηρος Ιουστινου. _Ferens coronam Romanorum, et chlamydem candidam holosericam, habens loco purpurei aureum regium clavum, in cujus medio erat parva quaedam imago Justini imperiali veste induti._ Athenaeus lib. 12. Deipnosophistarum Demetrii chlamydem describit stellis aureis pictam: Αι δε χλαμυδες αυτου ησαν ορφνινον εχουσαι το φεγγος της χροας. Το δε παν ο πολος ενοφατο, χρυσους αστερας εχων, και τα δοδεκα ζωδια. _Ejus chlamydes obscuro splendore coloris fulgebant. Acu pictum in iis videbatur caelum, habens astra aurea, et duodecim zodiaci signa._ Stephanus 3. in memorata ad Alcuinum epistola B. Dionysium se vidisse refert: _colobio indutum candidissimo purpura clavato, pallio toto purpureo, auro interstellato._ Ita denique pictam hujusmodi vestem describit Corippus lib. 2. memorati Panegyrici in laudem Justini 2. v. 277.
+
+_Et tulit intextam pretioso murice vestem,_  
+_Justinianorum series ubi tota laborum_  
+_Nexo auro insignita fuit, gemmisque corusea._  
+_Illic barbaricas flexa cervice phalanges,_  
+_Occisos reges, subjectasque ordine gentes_  
+_Pictor acu tenui multa formaverat arte._  
+_Fecerat et fulvum distare coloribus aurum,_  
+_Omnis ut aspiciens ea corpora vera putaret._  
+_Effigies auro, sanguis depingitur ostro._
+
+Sed de hisce purpureis acu pictis vestibus cap. 43.: sermo est rediturus.
+
+## Caput 38.
+
+_De ratione ornandi vestes clavis, aut picturis._
+
+Clavi autem, limbi, et picturae hujusmodi aliquando vestibus insuebantur, uti plerumque in ornatibus vestium nostrarum usuvenit, quos _galloni, o guernizioni_ vocamus. Jam audivimus Basilium in loco Isaiae dicentem: _Aut vestium oris attexebant purpuram, aut eam parti mediae immittebant._ Horatius in Arte poetica v. 15.
+
+_Purpureus late qui splendeat unus et alter_  
+_Assuitur pannus._
+
+I. C. in 50. 32. de auro, et argento legato: _Et quae his accessionis vice accedunt, quae sunt institae, picturae, clavique, qui vestibus insuuntur... Quemadmodum clavi aurei, et purpurei pars sunt vestimentorum. Idem Pomponius libris epistolarum: etsi non sunt clavi vestimentis consuti, tamen veste legata contineri._ Hinc jam formatae vestes, sed nondum clavis, aut picturis ornatae vocabantur Praeclavia, idest vestes non adhuc clavatae, aut pictae. Nonius: _Praeclavium pars vestis, quae ante clavum texitur_; adducitque, qui sequitur, locum Afranii: _Mea nutrix surge, si vis, profer purpuram, praeclavium textum est._
+
+Interdum vero saltem picturae opere phrygionico adplicabantur, quod nos dicimus _a ricamo_. Plinius lib. 8. cap. 48.: _Pictas vestes jam apud Homerum fuisse, unde triumphales natae. Acu facere id Phryges invenerunt, ideoque phrygiones appellati sunt._ Suidas in voce Chlamys ait Numam Pompilium εφευρε την χλαμυδα στολην, ουκ εξωθεν επιθεις, αλλ εσωθεν εμβαλων την της πορφυρας βαφην, _tulisse chlamydem non immittentem ab ex teriori parte_, (idest non insuentem) _sed iniicientem ab interiori parte_ (idest acu pingentem) _purpuram_. Hactenus generatim, mox peculiariter de antiquorum purpureis vestibus.
+
 ...
 
 ## Appendix de antiqua et nupera Purpura Dissertatio Johannis Baptistae Capellii veneti pharmacopolae.
