@@ -1182,8 +1182,105 @@ _Crescis._
 
 Tantam vero gloriolam ex hisce clavis tunicarum sibi captabant antiqui, ut quidam pellucidis togis ad ostentandos subiectarum tunicarum clavos uterentur. Varro apud Nonium in vocibus _Tunica, et Vitream: Quam istorum vitreae togae ostentant tunicae clavos._
 
+## Caput 41.
+
+_De praetexta, et trabea._
+
+Nemo nescit togam praetextam magistratuum Romanorum propriam, fuisse naturali albo colore donatam, et tantum purpureis oris, sive limbis transversis insignem. Graeci scriptores id demostrant, qui togam praetextam περιπορφυρον, quasi purpureis taeniis, sive limbis circumdatam vocant. Vicem omnium praestet Plutarchus in Romuli Vita: Τηβεννον εφορει περιπορφυρον. _Gestabat_ (Romulus) _togam praetextam._
+
+Svetonius apud Servium ad librum 7. Aeneidos tria trabearum genera proponit: _Unum Diis sacratum, quod est tantum de purpura: aliud regum, quod est purpureum, habet tamen aliquid album: tertium augurale de purpura et cocco._ Cum autem primum trabeae genus ad Deos pertineret, cum secundum ad reges non jam Romanos, sed Barbaros, et Persas, uti cap. 36. observavimus, hinc de tertio tantum trabeae genere, quae ad augures, reliquosque sacerdotes, reges Romanos, consules, equitesque in eorum transvectionibus pertinebat, quaeque una erat Romana trabea, verba faciemus. Erat autem haec purpura et cocco ornata, uti a Svetonio audivimus, et uti etiam assentitur Isidorus Originum lib. 19. _Trabea erat togae species ex purpura, et cocco, qua operti Romanorum reges initio procedebant._ Sed qua certa ratione purpura, et cocco ornatam fuisse trabeam est putandum? Dionysius affirmat trabeam fuisse togam naturali albo colore donatam, ornatam vero coccineis clavis, et purpureis limbis. Ita ille lib. 2. de sacerdotibus Gallis loquens: Τηβεννας εμπεπορπημενα περιπορφυρους φοινικοπαρυφους, ας καλουσι τραβεας. _Togas induti ornatas limbis purpureis, et coccineis clavis, quas trabeas vocant._ Idem Dionysius lib. 6. de equitibus Romanis in eorum transvectionibus verba faciens: Τηβεννας περιπορφυρους φοινικοπαρυφους, ας καλουσι τραβεας. _Induti togas ornatas purpureis limbis, et clavis coccineis, quas vocant trabeas._ Trabea autem vocabatur, quod hi coccinei clavi, cum plurimi essent, aut trabes, aut virgas referrent. Hinc sagula virgata Gallorum trabeata etiam dicta sunt. Servius ad lib. 8. Aeneidos: _Quae sagula Gallorum virgata etiam trabeata dicta sunt._ Trebellius in Gallieno: _Perdita Gallia arrisisse, et dixisse perhibetur: Non sine trabeatis sagis tuta respublica erit?_
+
+Observandum vero trabeas sequioribus imperii temporibus etiam aureis clavis, aut segmentis, et aureis picturis fuisse insignitas. Sidonius Apollinaris carm. 15.:
+
+_Attamen in trabea segmento luserat alto._  
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;Ausonius Epist. 24.  
+_Paullinum, Ausoniumque viros, quos sacra Quirini_  
+_Purpura, et auratus trabeae velavit amictus._
+
+Claudianus denique lib. 2. de laudibus Stiliconis hanc ditissimam trabeam describit:
+
+_gremioque rigentia profert_  
+_Dona, graves auro trabeas. Insigne Minervam_  
+_Spirat opus, rutilis hinc pingitur aula columnis,_  
+_Et sacri Mariae partus. Lucina labores_  
+_Solatur, residet fulgente puerpera lecto,_  
+_Sollicitae juxta pallescunt gaudia matris._  
+_Susceptum puerum redimitae tempora Nymphae_  
+_Auri fonte lavant. Teneros in stamine risus,_  
+_Vagitusque audire putes. Jam creverat infans_  
+_Ore ferens patrem, sed avus maturior aevi_  
+_Martia recturo tradit praecepta nepoti._  
+_Parte alia spumis fucantem serica fraena_  
+_Sanguineis, primae signatus flore juventae_  
+_Eucherius flectebat equum, jaculisque, vel arcu_  
+_Aurea purpureos tollentes cornua cervos_  
+_Aureus ipse ferit._
+
+## Caput 42.
+
+_De chlamyde, aut paludamento._
+
+Romanorum Imperatorum chlamys tam reipublicae, quam imperii tempore alba erat quandoque, saepius vero purpurea. Valerius Maximus lib. 1. cap. 5.: _Pullum ei_ (Crasso) _traditum est paludamentum, cum in praelium exeuntibus album, aut purpureum dari soleret._ Hircius de bello Africano: _Cum Scipio sagulo purpureo ante Iubae regis adventum uti solitus esset, dicitur Iuba cum eo egisse, non oportere illum uti vestitu, atque ipse uteretur. Itaque factum est ut Scipio ad album sese vestimentum transferret._ Ipse Valerius Maximus lib. 1. cap. 8. _Cassius acie Philippensi vidit Caesarem humano habitu augustiorem, purpureo paludamento amictum._ Appianus Alexandrinus lib. 2. bellorum civilium refert Caesarem natantem την πορφυραν απερριψε, _chlamydem purpuream cepisse._ Herodianus lib. 4. cap. 8. Caracallam ait supra Alexandri M. tumulum injecisse την τε χλαμυδα, ην εφερεν αλουγρη, _purpuream elamydem, quam ferebat._ Eutropius lib. 10.: _Imperii insigne in chlamyde purpurea tantum erat._ Eusebius in Chronico: _Cum omnes Imperatores... chlamydem tantum purpuream a privato habitu plus haberent._
+
+Contra vero a scriptoribus aliis chlamys, aut paludamentum imperatorium coccineum fuisse dicitur. Plinius lib. 22. cap. 2.: _Galatiae, Africae, Lusitaniae granis coccum imperatoriis dicatum paludamentis._ Dion lib. 46. in sanguinem esse prolapsum eum dicit, qui Crasso φοινικα προσφερων _coccineam chlamydem ferebat._ Appianus lib. 9. bellorum civilium ait, M. Antonium apparuisse εν τη στρατηγιδη φοινικιδι, _coccinea imperatoria chlamyde indutum._ Lampridius in Imperatoris Alexandri vita: _Usus est chlamyde coccina saepe... Balneari veste ad palatium revertens hoc solum imperatorium habens, quod lacernam coccineam accipiebat._ Vopiscus in Aureliani Vita narrat ab eodem Aureliano Tetricum tyrannum chlamyde coccinea ornatum fuisse ductum in triumphum. _Inter haec fuit Tetricus chlamyde coccinea._ Horatius Epodon Ode 9. vers. 27.
+
+_Terra, marique victus hostis, Punico_  
+_Lugubre mutavit sagum._
+
+Et Porphyrion ad eumdem locum: _Hoc est, deposuit coccineam chlamydem Antonius, qua scilicet Imperator utebatur, et accepit lugubrem, idest nigram._
+
+Quae cum ita sint, et cum scriptores modo purpureum, modo coccineum imperatorium paludamentum fuisse dicant, nos purpureum, an coccineum hujusmodi paludamentum fuisse dicemus? Procul dubio utrumque, nimirum et coccineum, et purpureum. Lampridius in Diadumeni Vita: _Hic ubi primum indumenta coccea, et purpurea, ceteraque castrensia imperii insignia accepit, quasi sidereus, et caelestis emicuit._ Immo coccineum, purpureum, et aureum. Isidorus: _Paludamentum cocco, purpura, et auro distinctum._ Ut autem hanc imperatoriam chlamydem peculiarius describamus, ea tota coccinea erat variis clavis purpureis, et aureis distincta. Capitolinus in Albini Vita hanc epistolam Commodi Imperatoris ad Albinum ipsum rebellem datam refert: _Sane ut tibi insigne aliquod imperialis majestatis accedat, habebis utendi coccinei pallii facultatem, me praesente, et ad me, et cum mecum fueris, habiturus et purpuram, sed sine auro, quia ita et proavus meus Verus, qui puer vita functus est, ab Hadriano, qui eum adoptavit, accepit._ Cresconius Corippus lib. 2. vers. 118. Panegyrici in laudem Justini minoris chlamydem hujus imperialem clavis purpureis, et aureis instructam quoque describit:
+
+_Caesareos humeros ardenti murice texit_  
+_Circumfusa chlamys, rutilo quae ornata metallo_  
+_Principis exerta vincebat lumina dextra._
+
+B. Marcus, et B. Johannes narrant Romanos milites opprobrii caussa Jesum Christum Redemptorem nostrum (cui honor, et gloria in saecula saeculorum) veste purpurea induisse. Ita B. Marcus cap. 15.: _Milites autem duxerunt eum in atrium praetorii, et convocant totam cohortem, et induunt eum purpura._ Ita quoque B. Johannes cap. 19.: _Et milites plectentes coronam de spinis imposuerunt capiti ejus, et veste purpurea circumdederunt eum._ B. Matthaeus vero cap. 27. narrat eosdem milites veste coccinea Jesum Christum induisse: _Tunc milites Praesidis suscipientes Jesum in praetorio, congregaverunt ad eum universam cohortem, et exsuentes eum, chlamydem coccineam circumdederunt ei._ Enimvero vel mendacia, vel inter se pugnantia in hisce afflati scriptoribus admittemus? Minime sane. Juvencus lib. 4. Historiae evangelicae, ut hanc pugnam tollat, chlamydem coccineam, et tunicam purpuream divino homini impositam autumat:
+
+_Purpureamque illi tunicam, chlamydemque rubentem_  
+_Iniiciunt, spinisque caput cinxere cruentis._
+
+Melius autem haec inter se specie tantum pugnantia conciliat B. Augustinus lib. 3. de consensu Evangelistarum inquiens chlamydem fuisse totam coccineam, et clavis purpureis ornatam, atque adeo, cum utroque colore insignita esset, et purpuream, et coccineam eamdem vocitari potuisse, et consuevisse: _Potest etiam fieri, ut purpuram etiam Marcus commemorarit, quam chlamys habebat, quamvis esset coccinea._ Idem confirmat Germanus Patriarcha in libro de Theoria ecclesiarum inquiens, divino nostro Furcifero indutam fuisse purpuram chlamydis coccineae: την απο κοκκινου πορφυραν, _purpuram vestis coccineae_. Hanc autem veram esse sacrorum Historicorum sententiam, quae supra demonstravimus, etiam perbelle ostendunt.
+
+Ceteri autem militiae Romanae duces, et praefecti saltem imperii tempore chlamydes albas gerebant clavis tantum purpureis notatas ad aliquam significationem praebendam illius imperii, quod a purpureo principe accepissent. Jam audivimus B. Dorotheum Archimandritam doctrina 1. dicentem: Εκαστος στρατευομενος το βασιλει πορφυραν εχει εις το χλανιδιον αυτου. επειδη γαρ ο βασιλευς πορφυραν φορει, παντες οι στρατευομενοι αυτω βαλλουσι πορφυραν εις τα χλανιδια αυτων. τουτεστι το βασιλικον ενδυμα, ινα δια τουτου δειξωσιν, οτι του βασιλεως εισι, και οτι αυτω στρατευονται. _Quicumque regi militat, purpuram habet in chlamyde sua. Ex quo enim rex purpuram ferre cepit, omnes, qui militant ei, immittunt purpuram in sagis suis, ut inde appareat regios illos esse, et regi commilitare._ Cassiodorus lib. 6. cap. 21. ad Rectorem provinciae scribens: _Chlamydi tuae procul dubio inter alia clavos intende, quo scias non inaniter positos. Hinc fit, ut cum publicum agentes purpuram cernerent, de vigore semper principis, admonerent._ Hasce chlamydes more tracto a Pelasgis ipsum Numam Pompilium ceteris ducibus, et praefectis primum tradidisse narrat Georgius Cedrenus Tom. 8. Byzantinae Historiae, licet id forsan Reipublicae Romanae temporibus falsum fuerit: Τας δε των εγκλητικων, και τας των εν αξιαις και στρατειαις χλαμυδας εχουσας σημανταρα της βασιλικης φορεσιας ταβλια πορφυρα δηλουντα αξιαν ρωμαικης πολιτειας, και υποταγην διαγωγης. _Jussit autem Numa, chlamydes Senatorum, aliorumque, qui in dignitatibus, et imperiis militaribus constituti essent, habere tabulas, aut latos clavos purpureos, signa regiae potestatis, et dignitatem, regimenque Romani imperii demonstrantes._
+
+## Caput 43.
+
+_De tunica palmata, et toga picta._
+
+Tunica palmata regum, triumphantium, et thensas ducentium propria, tota purpurea erat, sed decorata aureis clavis palmum latis, et picta aureis figuris palmarum, quae victoriam significarent, ita ut antiquitus a latitudine palmari clavorum, deinde a figuris palmarum, quae mox adiici coepere, palmata diceretur. Festus in verbo Toga picta: _Tunica autem palmata a latitudine clavorum dicebatur, quae nunc a genere picturae appellatur._ Xiphilinus in Excerptis lib. 56. eam vocat αλουργιδα χρυσοπαστον, non secus ac Plutarchus in Pauli Aemilii Vita, idest: _purpuream auroclavatam_. Dionysius lib. 5., et alibi etiam eam vocat στολην ποικιλην και χρυσοσημον, nimirum _tunicam palmis pictam, et auro clavatam._ Fortunatus Poem. lib. 2.
+
+_Alter palmatae, trabeae nitet alter honore,_  
+Pingit et ornatum gemma, aurum, purpura, byssus._
+
+Sequioribus vero imperii temporibus etiam hominum figurae in palmatis pingebantur. Ausonius in gratiarum actione: _Palmatam tibi misi, in qua divus parens Constantius intextus est. Haec plane haec est picta, ut dicitur, vestis non auro magis suo, quam tuis verbis._
+
+Toga picta eorumdem regum, triumphantium, et thensas ducentium propria, purpurea et ipsa tota erat, sed pictis aureis stellis insignis. Appianus Alexandrinus Punicorum lib. 1. narrat Scipionem triumphasse, ες των πατρων τροπον πορφυραν αστερων χρυσων ενυφασμενην, _juxta patrum morem indutum veste purpurea aureis stellis insigni._ Svetonius quoque Neronem ait Romam ingressum esse hujusmodi veste ornatum: _Ingressus est Romam eo curru, quo olim Augustus triumphaverat, in veste purpurea, distinctaque stellis aureis chlamyde._ Dionysius lib. 3., et etiam alibi eam vocat περιβολαιον ποικιλον, _togam pictam_. Festus denique ait, hanc togam antiquitus purpuream totam fuisse, sed sine pictura: _Picta, quae nunc toga dicitur, purpurea antea vocitata est, eaque erat sine pictura. Cujus rei argumentum est pictura in aede Vertumni, et Consi, quarum in altera M. Fulvius Flaccus, in altera T. Papirius Cursor triumphantes ita picti sunt._
+
+## Caput 44.
+
+_De calceis._
+
+Calcei regum Romanorum, triumphantium, et etiam quandoque senatorum proprii, coccinei erant juxta nonnullos scriptores. Zonaras lib. 4. Romulum ait πεδιλοις εκεκρητο ερυθροις, _rubris calceis usum esse_. Dion. lib. 43. Caesarem ait τη υποδεσει και υψηλη και ερυθροχροω κατα τους βασιλεας τους εν τη Αλβη ποτε γενομενους, ως και προσηχων σφισι δια τον Ιουλον εχρητο, _induisse calceum altum, et rubrum juxta regum Albanorum morem, ad quos per Julium Ascanium genus suum referebat._ Inscriptio Ariminensis Caii Marii a Gruterio pag. 436. num. 3., et ab aliis etiam relata, at semper magna cum varietate lectionum, (quae tamen spuria a Cl. Scipione Maffeio habetur in _Art. crit. lapidar._ lib. 3. cap. 4. col. 338.) haec nobis praecipue exhibet: DE. MANVBIEIS. CIMBRICIS. ET. TEVTONICEIS. AEDEM. HONORI. VICTOR. FECIT. VESTE. TRIVMPHALI. CALCEIS. PVNICEIS. Martialis lib. 2. epig. 29. ad senatores Romanos adludens ait:
+
+_Coccina non laesum cingit aluta pedem._
+
+Procopius libro Aedificiorum Justinianum narrat satrapibus Armeniae praeter cetera regia insignia concessisse etiam υποδηματα μεχρι ες γονυ φοινικου κρωματος, α δη βασιλεα μονον ρωμαιων τε και περσων υποδεισθαι θεμις, _calceos usque ad genu phoenicei, aut coccinei coloris, quae unum Romanorum imperatorem, et Persarum regem fas est ferre._ Hujusmodi autem coccinei, aut rubri calcei dicebantur mullei a colore rubro, qualis est mulli piscis. Isidorus: _Mullei ita dicti sunt a colore rubro, qualis est mulli piscis._ Contra Plinius lib. 9. cap. 17. mullum piscem dicit a mulleorum calceorum colore nomen accepisse. _Nomen mullis Fenestella a colore mulleorum calceamentorum datum putat. Mullum expirantem rubentium squammarum multiplici mutatione pallescentem._ Juxta vero alios scriptores iidem hi calcei non coccinei, sed purpurei erant. Corippus in saepius citato Panegyrico Justini minoris, de eodem Justino loquens: lib 2. vers. 104.
+
+_Purpureo surae resonant fulgente cothurno,_  
+_Cruraque puniceis induxit regia vinclis etc._  
+_Augustis solis hoc cultu competit uti._
+
+Refert Ammianus Marcellinus lib. 32., cum quidam apud Julianum accusaretur, quod chlamydem imperialem coccineam clavis purpureis, et aureis ornatam sibi parari curasset, Julianum ipsum hanc accusationem deridentem Comiti largitionis dixisse: _Jube periculso garritori pedum tegmina dari purpurea ad adversarium perferenda, quem, (ut datur intelligi) chlamydem hujus coloris memorat sibi consarcinasse, ut sciri possit sine viribus maximis quid pannuli proficiant leves._ Nicetas Choniates lib. 1. Alexium narrat calceis purpureis indutum, cum Imperator renunciaretur. Nicephorus lib. 6. Irenem ait, cum ad imperium eveheretur, purpureis quoque calceis fuisse indutam.
+
+Haec autem pugna eodem modo, ac superior, dirimetur, si calceos imperatorum, triumphantium, et senatorum totos coccineos fuisse, sed purpura clavatos, et ideo coccineos non secus, ac purpureos appellatos.
+
+Utebantur vero Graeci calceis non tantum purpureis, sed etiam aureis, et acu pictis. Epictetus Enchiridii cap. 61.: Καταχρυσον υποδημα, ειτα πορφυρουν ειτα κεντητον. _Calceus aureus, inde purpureus, inde acu pictus._
+
+## Caput 45.
+
 ...
 
-## Appendix de antiqua et nupera Purpura Dissertatio Johannis Baptistae Capellii veneti pharmacopolae.
+## Appendix de antiqua et nupera Purpura Dissertatio Johannis Baptistae Capellii veneti Pharmacopolae.
 
 ...
