@@ -1287,7 +1287,7 @@ _De tunica palmata, et toga picta._
 Tunica palmata regum, triumphantium, et thensas ducentium propria, tota purpurea erat, sed decorata aureis clavis palmum latis, et picta aureis figuris palmarum, quae victoriam significarent, ita ut antiquitus a latitudine palmari clavorum, deinde a figuris palmarum, quae mox adiici coepere, palmata diceretur. Festus in verbo Toga picta: _Tunica autem palmata a latitudine clavorum dicebatur, quae nunc a genere picturae appellatur._ Xiphilinus in Excerptis lib. 56. eam vocat αλουργιδα χρυσοπαστον, non secus ac Plutarchus in Pauli Aemilii Vita, idest: _purpuream auroclavatam_. Dionysius lib. 5., et alibi etiam eam vocat στολην ποικιλην και χρυσοσημον, nimirum _tunicam palmis pictam, et auro clavatam._ Fortunatus Poem. lib. 2.
 
 _Alter palmatae, trabeae nitet alter honore,_  
-Pingit et ornatum gemma, aurum, purpura, byssus._
+_Pingit et ornatum gemma, aurum, purpura, byssus._
 
 Sequioribus vero imperii temporibus etiam hominum figurae in palmatis pingebantur. Ausonius in gratiarum actione: _Palmatam tibi misi, in qua divus parens Constantius intextus est. Haec plane haec est picta, ut dicitur, vestis non auro magis suo, quam tuis verbis._
 
