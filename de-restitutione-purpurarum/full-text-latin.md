@@ -92,6 +92,42 @@
 
 ## [Caput 30.]()
 
+## [Caput 31.]()
+
+## [Caput 32.]()
+
+## [Caput 33.]()
+
+## [Caput 34.]()
+
+## [Caput 35.]()
+
+## [Caput 36.]()
+
+## [Caput 37.]()
+
+## [Caput 38.]()
+
+## [Caput 39.]()
+
+## [Caput 40.]()
+
+## [Caput 41.]()
+
+## [Caput 42.]()
+
+## [Caput 43.]()
+
+## [Caput 44.]()
+
+## [Caput 45.]()
+
+## [Caput 46.]()
+
+## [Caput 47.]()
+
+## [Caput 48.]()
+
 ...
 
 ## [Appendix de antiqua et nupera Purpura Dissertatio Johannis Baptistae Capellii veneti pharmacopolae.]()
@@ -1278,6 +1314,59 @@ Haec autem pugna eodem modo, ac superior, dirimetur, si calceos imperatorum, tri
 Utebantur vero Graeci calceis non tantum purpureis, sed etiam aureis, et acu pictis. Epictetus Enchiridii cap. 61.: Καταχρυσον υποδημα, ειτα πορφυρουν ειτα κεντητον. _Calceus aureus, inde purpureus, inde acu pictus._
 
 ## Caput 45.
+
+_De vestibus, et vexillis militum._
+
+Milites aliquando purpura induebantur. Aelianus lib. 6. cap. 6.: Φοινικιδα δε αμπεχεσθαι κατα τας μαχας, αναγκη ην. εχειν δε την χροαν και σεμνοτητος τι. προς ταυτη γε μην και την ρυσιν του επιγενομενου αιματος εκ των τραυματων ετι γε μαλλον εκπληττειν τους, αντιπαλους, βαθυτερας της οψεως γινομενης, και φοβερωτερας μαλλον. _Purpuram in praeliis induere necessitas fuit. Color ipse habet nescio quid augusti. deinde fluorem sanguinis e vulneribus occulit. Denique cum purpurae adspectus acrior sit, et terribilior, hostem percellere potest._ Sed plerumque coccineo, aut saltem rubicundo herbis parato colore utebantur. Petronius.
+
+_Hesperium coccum laudabat miles, eadem_  
+_Quaesitus tellure nitor certaverat ostro._  
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;Martialis lib. 13. epig. 87.  
+_Canusinae rufae._  
+_Roma magis fuscis vestitur, Gallia rufis,_  
+_Et placet hic pueris, militibusque colos._
+
+Valerius Maximus lib. 5. cap. 2.: _Lacedaemonii ad dissimulandum, et occultandum vulnerum suorum cruorem puniceis tunicis in praelio utebantur._ Isidorus: _Russata, quam Graeci phoeniceam vocant, nos coccinam, reperta est a Lacedaemoniis ad celandum coloris similitudine sanguinem._ Trebellius in Claudii Vita commemorat _tunicas russas militares annuas._ Silius Italicus Punicorum lib. 3. Carthaginienses milites _rubrae velamine vestis_ indutos fuisse refert. Hinc etiam coccinea tunica ad praetorium appensa praelii signum erat apud Romanos. Plutarchus in Fabii Vita: Αμαδ' ημερα το της μαχης σημειον εξεθηκεν. εστι δε χιτων κοκκινος υπερ της στρατηγικης σκηνης διατεινομενος. _Luce prima signum pugnae proposuit. Est autem tunica coccinea supra praetorii tabernaculum extensa._ Idem in Bruti Vita: Προυκειτο μεν τω Βρουτου χαρακι και τω Κασσιου συμβολον αγωνος φοινικους χιτων _Ante Bruti, et Cassii vallum propositum erat pugnae signum tunica coccinea._ Et denique in Vita Pompeii: Κατα ταχος προ της σκηνης εκελευσε προθειναι τον φοινικουν χιτωνα · τουτο γαρ μαχης ρωμαιοις εστι συμβολον. _Statim ante tabernaculum proponi jussit coccineam tunicam. Hoc enim est signum pugnae apud Romanos._
+
+Vexilla autem legionum coccinea erant, et imperatoris album. Polybius de re militari: Και ταυτας μεν ποιουσι φοινικας, την δε του στρατηγου λευκην. _Haec autem_ (vexilla) _faciunt coccinea, et imperatoris album._ Numina quoque Imperatorum φοινικοις γραμμασι _puniceis litteris_ in vexillis inscribi consuevisse Dion lib. 40. testatur.
+
+Lictores denique etiam coccinea veste magistratibus apparebant. Appianus in Libycis: Φοινικους χιτωνας ενδεδυκοτες. Lictores _coccinea veste induti._
+
+## Caput 46.
+
+_De vestibus muliebribus, et stragulis._
+
+Antiquas mulieres vestibus purpura, et auro clavatis, et etiam totis purpureis, et pictis indutas fuisse quis non arbitretur? De Romanis mulieribus affirmat Valerius Maximus lib. 5. cap. 2.: _Permisit quoque his_ (Populus Romanus feminis.) _purpurea veste, et aureis uti segmentis._ Nec non lib. 2. cap. 1. ubi narrat, quod _Romanis feminis vetitum fuit vinum, sed quod indulgentibus maritis et auro abundanti, et multa purpura usae sunt._ Audivimus cap. 32. Isaiam mulieres Hebraeas hoc nomine incusantem, et B. Basilium non minus, ac B. Hieronymum ad imperii Romani matronas incusationem eamdem traducentes. Audivimus quoque cap. 27. T. Livium dicentem, cum lex Oppia revocata est, haec vanitatis signa mulieribus Romanis restituta. Mulieres vero etiam omnium nationum hisce vestibus usas ostendit Julius Pollux ubique in suo Onomastico, et etiam plurima aliorum scriptorum testimonia, quae hoc ipso nostro libello allata sunt, quaeque huc non sunt revocanda.
+
+Stragula etiam omnia apud antiquos purpurea erant. T. Livius de revocata lege Oppia loquens lib. 34. cap. 1.: _Purpura viri utemur, praetextati in magistratibus in sacerdotiis, liberi nostri praetextis purpura togis utentur, magistratibus in coloniis municipiisque, hic Romae infimo genere magistris vicorum togae praetextae habendae jus permittemus, nec ut id vivi solum habeant tantum insigne, sed etiam ut cum eo crementur mortui: feminis dumtaxat purpurae usum interdicemus? Et cum tibi viro liceat purpura in veste stragula uti, matrem familias tuam purpureum amiculum habere non sines? Et equus tuus speciosius instratus erit, quam uxor vestita?_ Mappae etiam purpurae memorantur a Petronio in Satyric. cap. 32.: _Circaque oneratas veste cervices laticlaviam immiserat mappam._ Martialis lib. 4. epigr. 45.
+
+_Et lato variata mappa clavo._
+
+Lampridius in Alexandri Vita: _Convivium neque opimum, neque nimis parcum, sed nitoris summi fuit, ita tamen ut pura mantilia mitterentur, saepius cocco clavata._ Nec non purpurei pulvini memorantur ab Athenaeo lib. 6.: Προσκεφαλαια δ ειχε τρια μεν υπο τη κεφαλη βυσσινα παραλουργη. _Sub capite tres habebat pulvillos ex bysso purpura clavatos._ De stragulis vestibus purpureis plura allata in hoc libro scriptorum testimonia loquuntur, nec non Julius Pollux Onomastici lib. 4. cap. 18., lib. 7. cap. 13., et 14., lib. 10. cap. 8., qui consulendi.
+
+## Caput 47.
+
+_De signis Deorum, encausto, et picturis purpureis._
+
+Signa quoque Deorum hisce purpureis, coccineis, aureis, aut clavatis, aut pictis vestibus honoris caussa ab antiquis induebantur. Primum itaque Jovis signa induebantur tunica palmata, et toga picta, quae nimirum tota purpurea, stellisque aureis erat ornata. Servius ad Eclog. 10. Virgilii: _Triumphantes omnia habent Jovis insignia, sceptrum, et palmatam togam, qua utebantur illi, qui palmam merebantur._ T. Livius lib. 10. cap. 3.: _Qui Jovis optimi maximi ornatu decoratus curru aurato per urbem vectus in Capitolium ascenderit._ Juvenalis Sat. 10. v. 30.
+
+_Quid si vidisset praetorem curribus altis_  
+_Extantem, et medio sublimem in pulvere circi_  
+_In tunica Jovis, et pictae Sarrana ferentem_  
+_Ex humeris aulaea togae._
+
+Signa autem Saturni vestibus coccineis induebantur. Tertullianus libro de testimonio animae: _Atque id plerumque facit, et vitta Cereris redimita, et pallio Saturni coccinata, et Deae Isidis linteata._ Idem de pallio cap. 4.: _Cum latioris purpurae ambitio, et Galatici ruboris_ (nimirum coccinei ruboris, coccum enim in Galatia plurimum colligebatur, uti cap. 16. observavimus) _superjectio Saturnum commendat._ Plinius lib. 8. cap. 48. _Servii Tullii praetextae, quibus signum Fortunae ab eo dicatae coopertum erat._ Tibullus lib. 1. eleg. 7.
+
+_Non tibi sunt tristes curae, nec luctus, Osiri,_  
+_Sed Tyriae vestes, et dulci tibia cantu._
+
+Deos Babylonios purpura circumdatos nobis quoque exhibet Jeremias cap. 10. vers. 3.: _Hyacinthus, et purpura indumentum eorum, opus artificum universa haec._ Nec non Baruchus cap. 6. vers. 12.: _Opertis autem illis_ (Diis) _veste purpurea extergunt faciem ipsorum propter pulverem domus, qui est plurimus inter eos._ Tertullianus denique cap. 18. de idololatria loquens de Diis omnibus generatim: _Ceterum purpura, vel cetera insignia dignitatum, et potestatum insertae dignitati, et potestatibus idololatriae ab initio dicata habent profanationis suae maculam, cum propterea ipsis etiam idolis induantur praetextae, et trabeae, et laticlavi, fasces quoque, et virgae praeferantur, et merito. Nam daemonia magistratus sunt saeculi hujus, unius collegii insignia, fasces et purpuras gestant._
+
+Purpureo encausto, et atramento etiam utebantur antiqui, uti cap. 57. docebimus.
+
+Tabulas etiam purpureis coloribus pingebant antiqui homines, et hinc eorum picturas ea versicolori varietate, splendore, immortalitate donatas oportuit, quas in nostris picturis frustra forsitan desideramus. Picturas antiquas Romae, et Neapoli dudum repertas, recentes fere videri audivimus. Fortasse a purpureis coloribus id profectum existimamus. Plinius, et Vitruvius pluribus hanc purpuream tabularum, et parietum picturam exsequuntur, qui circa rem hanc non omittendi.
+
+## Caput 48.
 
 ...
 
