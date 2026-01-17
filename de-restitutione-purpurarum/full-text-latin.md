@@ -1368,6 +1368,162 @@ Tabulas etiam purpureis coloribus pingebant antiqui homines, et hinc eorum pictu
 
 ## Caput 48.
 
+_De pretio colorum purpureorum._
+
+Mirificae illae quatuor dotes, quibus antiquae purpurae splendebant, uti docuimus, usus purpurarum earumdem apud principes et ditiores quoscumque fere semper cohibitus, uti docebimus, eximiae laudes denique, quibus antiqui purpureos colores cumularunt, uti ubique hoc libro doctum, et docendum, caussam dicunt, pretiosissimas apud antiquos habitas fuisse easdem purpuras. Hinc maximo etiam pretio easdem antiquas purpuras constare oportuit. Et re quidem vera videmus antiquos scriptores omnes fere semper conjungere purpuras, margaritas, gemmas, et si quae alia tum pretiosiora haberentur. Horatius lib. 4. ode 13.:
+
+_Nec Coae referunt jam tibi purpurae,_  
+_Nec clari lapides tempora._  
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;Idem lib. 1. epist. 6.:  
+_Cum gemmis Tyrios mirare colores._  
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;Et lib. 2. epist. ultima:  
+_Gemmas, marmor, ebur, Tyrrhena sigilla, tabellas._  
+_Argentum, vestes Gaetulo murice tinctas._  
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;Tibullus lib. 2. eleg. 4.:  
+_O pereat quicumque legit viridesque smaragdos,_  
+_Et niveam Tyrio murice tingit ovem._  
+_Hic dat avaritiae caussas, et Coa puellis_  
+_Vestis, et a rubro lucida concha mari._  
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;Et lib. 2. eleg. 16.:  
+_Semper in Oceanum mittit me quaerere gemmas,_  
+_Et jubet ex ipsa tollere dona Tyro._  
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;Claudianus in 4. Honorii Consulatum:  
+_Quis junxit lapides ostro? Quis miscuit ignes_  
+_Sidonii, rubrique maris?_
+
+Plinius lib. 9. cap. 35. affirmat, purpurarum pretium pretio margaritarum fere aequalem fuisse, quarum margaritarum pretium apud Romanos pretia omnia antecederet: _Sed quota haec portio est reputantibus purpuras, conchylia, margaritas? Parum scilicet fuerat in gulas abscondi maria, nisi manibus, auribus, capite, totoque corpore a feminis juxta virisque gestarentur. Quid mari cum vestibus? Quid undis, fluctibusque cum vellere? Non recipit haec nostra rerum natura, nisi nudos. Esto, sit tanta ventri cum eo societas. Quid tergori? Parum est, nisi qui vescimur periculis, etiam vestiamur. Adeo per totum corpus anima hominis quaesita maxime placent. Principium ergo, culmenque omnium rerum pretii margaritae tenent._ Et mox: _Conchylia, et purpuras omnis ora atterit, quibus eadem mater luxuria paria pene etiam margaritis pretia fecit._
+
+Sed ad rem propius accedamus. Purpura profecto Tyria prae ceteris omnibus maximo in honore erat. Testimonia plurima veterum id probant, quae toto hoc libro prostant. Horatius lib. 1. epist. 10. illum sibi magno damno fututum ait, qui ab Aquinati fuco purpuram Tyriam, vel Sidoniam distinguere nequiret:
+
+_Non qui Sidonio contendere callidus ostro_  
+_Nescit Aquinatem potantia vellera fucum,_  
+_Certius accipiet damnum, propiusque medullis,_  
+_Quam qui non poterit vero distinguere falsum._
+
+Ovidius in libro de remedio amoris ipsi purpurae Amyclaeae, sive Laconicae Tyriam praefert:
+
+_Confer Amyclaeis medicatum vellus ahenis_  
+_Murice cum Tyrio: turpius illud erit._
+
+Sed certius purpurarum pretium nobis designat Cornelius Nepos apud Plinium lib. 9. cap. 39. declarans purpuram violaceam centum denariis, purpuram vero Tyriam mille saltem denariis in singulas lanae libras suis temporibus vendi consuevisse: _Nepos Cornelius... me, inquit, juvene violacea purpura vigebat, cujus libra denariis centum venibat... Huic successit dibapha Tyria, quae in libras denariis mille non poterat emi._ Jam vero Romanus denarius saltem duodecim nummis nostris, quos _baioccbi_ nominamus, constabat, si argenti absolutum, et intrinsecum pretium spectemus, uti antiquae rei nummariae peritis est compertum. Hinc juxta allatam Cornelii aestimationem lanae purpureae violaceae libra duodecim philippeis, quos _scudi_ appellamus, Tyriae vero rubidae lanae libra centum viginti philippeis, sive _scudi_ constitisset. Athenaeus Deipnosoph. lib. 12. purpureae lanae pondo argenti pondo aequiparat: Ισοσταστιος ην η πορφυρα προς αργυρον. _Aequalis est purpura argento._ Fortasse loquitur Athenaeus de purpura violacea, quae centum denariis, sive philippeis duodecim in libras appendebatur, quod fere librae argenti pretium est, uti cuique est notissimum. Hinc aestimatio purpurae violaceae tradita a Cornelio optime ab Athenaeo confirmatur. Narrat Martialis lacernas Tyria purpura tinctas suis temporibus decem millibus nummum, sive duobus millibus, et quingentis denariis constitisse. Ita ille lib. 8. epigr. 10.:
+
+_Emit lacernas millibus decem Bassus_  
+_Tyrias coloris optimi._  
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;Et lib. 4. epigr. 61.:  
+_Millibus decem dixti_  
+_Emptas lacernas._
+
+Jam vero juxta Cornelii aestimationem bis mille, et quingenti denarii pretium constituebant librarum duarum, et semissis lanae purpureae Tyriae. Hinc Martialis etiam aestimationem Cornelii confirmat, cum duae librae, et semis purpureae lanae sufficere potuissent condendae lacernae, quae lacerna breve, et angustum pallium erat, quod imperii tempore Romani induebant juxta Juvenalem Sat. 1. v. 27. Sat. 9. vers. 29., Statium lib. 2. Silv. 1. v. 132. Martialem lib. 6. epigr. 59., et Festum in verbo _Lacerna_. Lacernae igitur Tyriae purpureae Martialis temporibus stabant duobus millibus, et quingentis denariis, nimirum philippeis, sive scutis trecentis, si ad monetam nostram referantur.
+
+Purpurae nigrae, lividae, caeruleae, flavae, rubicundae, candidae, et purpurae quinque mixtae, quae pretia habuerint, omnino latet. Dicemus hic quoque tamen, quod veri similius sit. Conjecturis igitur assequi possumus, purpuras nigras, et lividas, uti parum splendidas, minoris constitisse: purpuras conchyliatas caeruleas, et flavas, utpote minori succorum copia, et minori sumptu formatas, quoque minoris constitisse: purpuram buccini, ut facile evanescentem, quoque minoris: purpuras vero rubicundas, et candidas, utpote quae rarissime ex Perside, et India ducerentur, et purpuras mixtas, quae duplo majori succorum copia tingerentur, majoris forsan, quam purpuram ipsam Tyriam fuisse. Pretiorum hujusmodi rationes ex iis, quae superioribus capitibus diximus, clarissime descendunt.
+
+Si itaque libra lanae purpureae violaceae philippeis duodecim, si libra lanae purpureae Tyriae philippeis centum viginti venibat, cuilibet facile erit animadvertere, pretiosiorem quamlibet nostri temporis tincturam a tanto pretio longissime abesse. Quid vero dicendum, si observaverimus, antiquas aetates fere omnes nummis magis inopes fuisse, quam aetas sit nostra, locupletissimam quam reddunt tot aurei, et argentei montes, quos Africa, America, et Asia tribus fere ab hinc saeculis in Europam effudere, et adhuc effundunt? Aetatem ipsam Cornelii Nepotis, et Martialis, licet antiquis omnibus omnino nummis ditiorem, attamen aetate ipsa hac nostra nummis minus affluentem fuisse? Proinde hisce primis Romani Imperii temporibus, de quibus nunc loquimur, cum nummi rariores, quam nunc essent, et inde quadruplo major ratio, ut suspicor, inter nummos, et pretium reliquarum rerum intercederet, libram lanae purpureae violaceae philippicis quadraginta octo, libram vero lanae purpureae Tyriae philippeis quadringentis octoginta fuisse constituram? Quod enorme pretium purpurarum exsurget? Quod portentosum pretium integrae vestis purpureae Tyriae illisce temporibus futurum fuisse dicemus? Quid deinde de purpurei serici pretio dicendum, cum purpurarum pretio serici ipsius pretium cumularetur, quod sericum aequo pondere auri venibat, ita ut libra serici librae auri aequaretur, ut ait Vopiscus?
+
+Quid quoque dicemus de vestibus auro clavatis, aut etiam pictis, in quibus praeter purpurae, sericique pretium, auri pretium, et picturae manupretium gravissimum adjungeretur? Audimus sane apud antiquos longe pluris purpureas, et auro pictas vestes, quam aureas ipsas, aestimatas fuisse. Epictetus Enchiridii cap. 61.: Καταπερ και επι του υποδηματος, εαν τον ποδα υπερβης, γιγνεται καταχρυσον υποδημα, ειτα πορφυρουν, ειτα κεντητον. _Uti etiam in calceo, si pedis usum fueris praetergressus, fit calceus aureus, inde purpureus, inde acu pictus._ Et Simplicius ad eumdem locum: Ταυτη δε ην ως εοικε παρα Ρωμαιοις και περι τα πορφυρα, και κεντητα περιεγγια, ωστε και των καταχρυσων αυτα προτιμαθαι. _Tanta apud Romanos cura fuisse videtur in purpureis, et acu picts calceis formandis, ut etiam aureis anteponerentur._ Quibus igitur immenso majoribus pretiis hasce sericas, et pictas vestes vendi oportuit?
+
+## Caput 49.
+
+_De sumptibus in coloribus purpureis condendis._
+
+Proficiscebantur quidem haec immania pretia a quatuor illis mirificentissimis purpureorum colorum dotibus, quas superioribus capitibus enarravimus. Sed proficiscebantur etiam non minus ab immani sumptu, qui in legendis, et parandis tot conchyliis requirebatur. Hujusce rei ergo referamus Plinii locum in lib. 9. cap. 36. dicentis, buccinorum libras ducentas, purpurarum libras centum, et decem ad tingendas purpura decem laneas libras fuisse requisitas. _Summa medicaminum in libras 10. vellerum, buccini 200... pelagii 110._
+
+Hinc alium ejusdem Plinii locum producamus in lib. 9. cap. 40. asserentis, alia aliis conchyliis pretia fuisse pro littorum fertilitate, vel sterilitate, nusquam vero purpurarum libram quinquaginta nummos excessisse, buccinorum vero libram centum nummos excessisse. _Pretia medicamento sunt quidem pro fertilitate littorum viliora. Non tamen usquam pelagii libras quinquagenos nummos excedere, et buccini centenos sciant, qui ista mercantur immenso._
+
+Repetamus denique locum Cornelii apud Plinium lib. 9. cap. 39. dicentis, violaceam purpuram centum denariis, Tyriam mille denariis in libras emi consuevisse: _Me juvene, violacea purpura vigebat, cujus libra denariis centum venibat. Successit dibapha Tyria, quae in libras denariis mille non poterat emi._
+
+Ex hisce tribus locis facile rationem sumptus, et lucri subducere poterimus, qui sumptus, et lucrum ab antiquis purpurariis infectioribus haberetur. Et quidem primo rationem sumptus, et lucri, quod antiqui artifices haberent in condenda purpura Tyria, ineamus. Liceat hic claritatis gratia numeris Arabicis, aut Judicis uti.
+
+Pondo igitur buccinorum venibat utplurimum nummis 100. denariis 25., pretio nostro scut. 3.
+
+Hinc pondo 200. buccinorum, nimirum quot ad inficiendas 10. lanae libras requirebantur, memorata ratione aestimationem datura erant denariorum 5000., pretii nostri scut. 600.
+
+Pondo quoque purpurarum venibat utplurimum nummis 50. denariis 12. 1/2., pretio nostro scut. 1. 50.
+
+Hinc quoque librae 110. purpurarum, quot nimirum ad inficiendas 10. lanae libras requirebantur, eadem ratione daturae erant aestimationem denariorum 1355., pretii nostri scut. 162.
+
+Sumptus, in ligna, et artifices probabili hypothesi conficere potuerunt denarios 635., pretium nostrum scut. 76. 20.
+
+Et proinde sumptus omnes, qui in tingendis 10. lanae libris requirebantur, constituissent summam denariorum 7000., pretii nostri scut. 840.
+
+Jam vero librae 10. lanae purpureae Tyriae venibant minimum denariis 10000., pretio nostro scut. 1200.
+
+Si igitur summa sumptuum, quae erat denariorum 7000., subtrahatur a summa pretii, quae erat denariorum 10000., clare emerget, lucrum artificum pro singulis 10. lanae purpureae Tyriae libris futurum fuisse denariorum 3000., pretii nostri scut. 360.
+
+Secundo loco vero rationem sumptus, lucrique dispiciamus, quod in condenda purpura violacea facerent antiqui purpurarii artifices. Ratio erit aeque clara, et nitida, propterea quod quemadmodum purpurae violaceae pretium, quod erat denariorum 100. in singulas libras, rationem habet subdecuplam ad purpurae Tyriae pretium, quod erat denariorum 1000. in singulas libras, ita haec eadem subdecupla ratio rem ipsam pari claritate demonstrabit.
+
+Ex memorata igitur subdecupla ratione buccinorum libra venire debuit nummis 10. denariis 2. 1/2., pretio nostro scut. = 30.
+
+Hinc buccinorum librae 200., quot nimirum ad 10. lanae libras tingendas usui erant, ipsa ratione dedissent aestimationem denariorum 500., pretii nostri scut. 60.
+
+Ita quoque purpurarum libra venire debuit nummis 5. denariis 1. 1/4. pretio nostro scut. = 15.
+
+Hinc etiam librae 110. purpurarum, quot nimirum ad tingendas 10. lanae libras opus erant, dedissent aestimationem denariorum 137. 1/2. pretii nostri sc. 16. 50.
+
+Sumptus ipsi in ligna, et artifices per eamdem probabilem hypothesim facturi fuerant summam denariorum 62. 1/2., pretii nostri scut. 7. 50.
+
+Et proinde sumptus omnes, qui in tingendis 10. lanae libris requirebantur, constituissent summam denariorum 700., pretii nostri scut. 84.
+
+Jam vero lanae librae 10. violacea purpura infectae pendebant denariis 1000., pretio nostro scut. 120.
+
+Si igitur summa sumptuum, quae erat denariorum 700., subtrahatur a summa pretii, quae erat denariorum 1000., aeque clare patebit, in singulas 10. lanae purpureae violaceae libras artificibus futurum fuisse lucrum denariorum 300., pretii nostri scut. 36.
+
+Hic tamen animadvertere juvat, locum primum Plinii, quem hoc capite retulimus, ita in omnibus fere editionibus legi. _Summa medicaminum in libras vellerum buccini 200., pelagii 110._ Nimirum libras 200. buccinorum, libras 110. purpurarum requisitas fuisse ad tingendas non jam 10. libras, uti diximus, sed lanae libram unam tantum. Verum locus ita expressus mendo gravissimo scatet. Vidimus enim hoc eodem capite, libram lanae purpureae Tyriae denariis 1000. vendi consuevisse. Vidimus quoque capite hoc eodem, libras 200. buccinorum, libras 110. purpurarum una cum pretio lignorum, et artificum constituisse summam denariorum 7000. Quomodo igitur fieri poterit, ut libra lanae purpureae Tyriae denariorum 7000. impensam ferret, et deinde denariis mille venderetur? Quomodo fieri potuit, antiquos artifices denariorum 7000. sumptum fecisse, ut denarios 1000. tantum redigerent? Huic primae, et gravissimae observationi altera non minor adjungatur. Vidimus hoc capite, ad inficiendas sive unam, sive decem libras, fuisse requisitas libras 200. buccinorum, libras 110. purpurarum. Vidimus quoque cap. 24. ad temperandam hanc summam integram librarum 310., quae a medicaminibus, nimirum a venis, carnibusque buccinorum, et purpurarum constitueretur, amphoras duas, sive libras 160. aquae misceri consuevisse, nimirum ut tertia pars aqua, duae tertiae partes memoratis venis constarent. Hac ratione igitur quantitatem librarum 470. liquidae hujus mixturae confici oportuit. Jam vero postulemus, quantitatem hanc librarum 470. despumatione carnium, fervore, et evaporatione redigi tandem potuisse ad unas libras 20. Verum enimvero libras 20. hujusce crassioris medicaminis, et quasi cocti glutinis, satis superque uni librae lanae tingendae suppetituras nemo ibit inficias. Harduinus, qui antiquarum Plinii editionum erroribus alios complures de suo penu consarcinavit, hic mendum subesse sensit, et audacter numerum 50. adjecit, ita locum Plinii legens: _Summa medicaminum in libras 50. vellerum buccini 200., pelagii 110._ Arburtnotius vero in suis tabulis de antiquis nummis, dissertatione de Romanorum re nummaria cap. 9. etiam numerum 100. adjiciendum statuit, ita legens. _Summa medicaminum in libras 100. vellerum buccini 200., pelagii 110._ Sed perperam uterque. Librae enim 50, quas Harduinus constituit, juxta Cornelii aestimationem non minus certe denariis 50000. constitissent, quemadmodum librae 100. lanae, quas constituit Arburtnotius, non minus quam denariis 100000. juxta eamdem Cornelii aestimationem constitissent. Impensae omnes vero, quae in tingendis hisce sive 50., sive 100. lanae libris requirerentur, juxta Plinii aestimationem summam denariorum 7000. non excessissent, uti capite hoc ipso observavimus. Quis autem non videat immane, et incredibile artificum futurum fuisse lucrum, si denarios 7000. tantum impendissent, pretium vero denariorum 50000., aut 100000. ex venditione percepissent? Nos vero numerum 10. tantum adjecimus, et ita legimus locum. _Summa medicaminum in libras 10. vellerum buccini 200., pelagii 110._, nimirum libras 200. buccinorum, libras 110. purpurarum ad tingendas 10. lanae libras usui fuisse. Si enim 7. libras posuissemus, cum 7. librae lanae purpureae 7000. denariis venderentur, et sumptus 7000. denariorum haberetur, nullum artificum futurum fuisset lucellum. Si vero 14. libras posuissemus, cum eaedem librae 14. denariis 14000. venderentur, et unus sumptus denariorum 7000. haberetur, certe duplo majus, et proinde nimium artificum eorumdem fuisset lucellum. Mediam viam itaque tutissimam elegimus, et 10. libras reposuimus, dedimusque artificibus 3000. denariorum lucellum in singulas lanae purpureae 10. libras, quod lucrum, utpote trientem pretii non excedens, aequissimum esse quivis judicabit.
+
+## Caput 50.
+
+_De pretio coloris coccinei, et herbaceorum._
+
+Coccinei coloris aestimatio suppar fere fuit colorum purpureorum aestimationi. Antiqui scriptores id primum demonstrant, qui simul fere semper coccineum, et purpureos colores nominant. Lucretius de rerum natura lib. 2.:
+
+_Purpuros, phoeniceusque color clarissimu' multo._  
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;Tibullus lib. 2. eleg. 3.  
+_Illi selectos certent praebere colores_  
+_Africa puniceum purpureumque Tyros._  
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;Martialis lib. 4. epigr. 28.  
+_Donasti tenero, Chloe, Luperco_  
+_Hispanas, Tyriasque, coccinasque._  
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;Et lib. 2. epigr. 39.  
+_Coccina famosae donas, et janthina moechae._
+
+Svetonius in Neronis Vita: _Piscatus est reti aurato, purpura, coccoque funibus textis._ Plurimos etiam alios scriptores ad hanc rem cap. 19. dedimus, qui repetendi. Eamdem ipsam colorum purpureorum, et coccinei fere aequalem aestimationem confirmat etiam usus promiscuus et coccinei coloris, et purpureorum, qui apud antiquos vigebat, in chlamyde, aut paludamento imperatorio, in consulari trabea, ceterisque vestibus insignioribus, quemadmodum superioribus docuimus capitibus. Color denique ipse id demonstrat, qui, cum rubicundus sit, vividissimus, et gratissimus est colorum omnium, quos fixos, et constantes nominamus.
+
+Hinc pretium ipsum coloris coccinei summum esse debuit, non ob eam tantum aestimationem, quam diximus, sed etiam ob graves sumptus, quos comparatio cocci, quae erat extera, et longe petita galla, postulabat.
+
+Hoc pretium tamen ad gravissimum illud colorum purpureorum pretium accessisse minime putamus. Forsitan etiam mollities, immortalitas, splendor, versicolor color, quae quatuor eximiae dotes antiquas purpuras adeo commendabant, carissimasque reddebant, coccineum colorem non omnino comitabantur. Id significare videtur Martialis ipse lib. 2. epigr. 43.
+
+_Misit Agenoreas Cadmi tibi terra lacernas,_  
+_Non vendes nummis coccina nostra tribus._
+
+Immo id fortasse a natura ipsa coloris coccinei proficisci potuit, qui inter fixos naturae colores profecto vividior, nimium oculos intuentium praestringeret, nec splendentes quidem, sed blande, et identidem splendentes, purpureos versicolores colores imitaretur. Hinc vidimus Martialem lib. 14. epigr. 129. affirmantem, hunc coccineum colorem pueris, militibusque acceptiorem, quam ceteris fuisse:
+
+_Roma magis fuscis vestitur, Gallia rufis,_  
+_Et placet hic pueris, militibusque colos._
+
+Plurimosque etiam ad hanc rem alios scriptores cap. 45. attulimus, ad quos, ne actum agamus, remittimus lectores.
+
+Si vero maximum erat colorum purpureorum pretium, si coloris coccinei secundum, minimum quidem pretium colorum esse debuit, qui herbis pararentur. Jam audivimus, Ovidium lib. 3. de arte amandi v. 148. juvenculas monentem, ne census integros in coemendis purpureis vestibus absumerent, satisque haberent vestibus succo herbarum tinctis, et minoris constantibus vestiri.
+
+_Quid de veste loquar? Nec vos, segmenta, requiro,_  
+_Nec quae bis Tyrio murice lana rubes._  
+_Cum tot prodierint pretio leviore colores,_  
+_Quis furor est census corpore ferre suo?_  
+_Aeris ecce color..._  
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;Eodem referendus Martialis lib. 6. epigr. 2.  
+_Te Cadmea Tyros, me pinguis Gallia vestit._
+
+Idem quoque Martialis Bassum quemdam ridet, qui coloribus herbarum semper indutus solemnibus ludorum diebus, ut Romanus eques putaretur, coloribus tantum purpureis, aut coccineis ornatus prodiret. Ita ille lib. 5. epigr. 23.
+
+_Herbarum fueras indutus, Basse, colores,_  
+_Jura theatralis cum siluere fori._  
+_Quae postquam placidi censoris cura renasci_  
+_Jussit, et Oceanum certior audit eques:_  
+_Non nisi vel cocco madida, vel murice tincta_  
+_Veste nites, et te sic dare verba putas._  
+_Quadringentorum nullae sunt, Basse, lacernae:_  
+_Aut meus ante omnes Codrus haberet equum._
+
+## Caput 51.
+
 ...
 
 ## Appendix de antiqua et nupera Purpura Dissertatio Johannis Baptistae Capellii veneti Pharmacopolae.
