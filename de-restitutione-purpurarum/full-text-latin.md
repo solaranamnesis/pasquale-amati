@@ -128,6 +128,18 @@
 
 ## [Caput 48.]()
 
+## [Caput 49.]()
+
+## [Caput 50.]()
+
+## [Caput 51.]()
+
+## [Caput 52.]()
+
+## [Caput 53.]()
+
+## [Caput 54.]()
+
 ...
 
 ## [Appendix de antiqua et nupera Purpura Dissertatio Johannis Baptistae Capellii veneti pharmacopolae.]()
@@ -1568,6 +1580,52 @@ Alii quoque adfirmant Tullum Hostilium tertium Romae regem purpuram ab Etruscis 
 Alii tandem Tarquinium Priscum ab Etruscis purpuram primum Romam invexisse tradunt. Dionysius lib. 3. Ταυτας λαβοντες οι πρεσβεις τας αποκρισεις εχοντο, και μετ ολιγης ημερας παρησαν ου λογους αυτω μονον φεροντες ψιλους, αλλα και συμβολα της ηγεμονιας, οις εκοσμουν αυτοι τους σφετερους βασιλεις κομιζοντες στεφανον τε χρυσεον και θρονον ελεφαντινον και σκηπτρον αετον εχον επι της καφαλης, χιτωνα τε πορφυρουν χρυσοσημον και περιβολαιον ποικιλον, οια Λυδων τε και Περσων εφορουν οι βασιλεις. _Hisce verbis legati_ (Etruscorum a Tarquinio) _dimissi paucos post dies redeunt, non nuda verba ferentes tantum, sed etiam principatus insignia quibus suos reges ornare consueverant, idest coronam auream, sellam eburneam, sceptrum in summitate habens aquilam, tunicam purpuream auro clavatam, et togam pictam, qualia Lydorum, et Persarum reges gestabant._ Florus lib. 1. cap. 45.: _Duodecim namque Tusciae populos frequentibus armis subegit_ (Tarquinius Priscus.) _Inde fasces, trabeae, curules, annuli, phalerae, paludamenta, praetextae. Inde quod aureo curru quatuor equis triumphatur, togae pictae, tunicaeque palmares, omnia denique decora, et insignia, quibus imperii dignitas eminet, sumpta sunt._ Licet igitur primum purpurae usum in urbe Roma aliqui Romulo, alii Numae, alii Tullo Hostilio, alii denique Tarquinio Prisco tribuant, (et fortasse alii reges aliud purpureae vestis genus induxerunt) illud tamen fatentur omnes ab Etruscis purpuram ad reges Romanos ipsis urbis Romae primordiis, uti docuimus, transisse.
 
 ## Caput 53.
+
+_De usu purpurarum apud Romanos a regifugio ad Julium Caesarem._
+
+Hic primum vero praetereundum non est, purpureas vestes, sive ob nimium pretium, sive ob versicolorem blandissimam varietatem, splendorem, immortalitatem, mollitiem, de quibus dotibus superius egimus, ubique gentium antiquitus fere semper privatis vetitas, et ad solos reges, eorumque satellites coarctatas, uti regiam eorum majestatem, et potestatem significantes. Testimonia plurima veterum, quae id probent, liber hic noster ubique fere ostendit. Probant id etiam plurima alia veterum testimonia, quae purpureos reges, purpuratos eorum satellites ubique nuncupant, et quae testimonia, cum notissima sint, nos omittenda hic quoque ducimus.
+
+Non ita tamen apud Romanos evenit, expulsis regibus, et republica vigente. Aut aequum jus civium, quod quaevis respublica adfectare solet, aut nota priscorum Romanorum frugalitas nullum adducere potuit purpurarum interdictum. Primus ille Consul Brutus unis vestibus auro clavatis, aut pictis interdixit, quod insignia regum essent, ceteras vero purpureas vestes permittendas censuit, immo etiam vestes pictas ludis, et triumphis donandas putavit. Dionysius lib. 4.: Των τε παρασημων, α τοις βασιλευσι παραδεδοται πολλων οντων, ει τινα λυπηρας υψεις, λαι επιφθονους τοις πολλοις παρεχεται τα μεν μειωσαι, τα δε αφελειν οιομαι δειν. τα σκηπτρα ταυτι λεγω, και τους χρυσους στεφανους, και τας αλουργεις, και χρυσοσημους αμπεχονας, πλην ει μη κατα καιρους τινας εορταιους, και εν πομπαις τριαμβων. _Inter tot regia insignta, si quae invisa, et molesta sunt populo, partim minuenda, partim tollenda judico. Sceptra dico, et coronas aureas, et vestes purpureas auro clavatas, haec non adhibeantur, nisi festis diebus, et pompis triumphalibus ad colendos Deos._
+
+Hinc legimus Romanos senes praetextis, trabeis, et pictis vestibus indutos, in vestibulis aedium considentes, ab irrumpentibus in urbem Gallis fuisse interemptos. Livius lib. 5. cap. 22.: _Romae satis jam omnibus, ut in tali re, ad tuendam arcem compositis, turba seniorum domos regressa, adventum hostium obstinato ad mortem animo exspectabat. Qui eorum curules gesserant magistratus, ut in fortunae pristinae, honorumque, aut virtutis insignibus morerentur, quae augustissima vestis est thensas ducentibus, triumphantibusque, ea vestiti medio aedium eburneis sellis sedere._
+
+Anno 269. ab urbe condita cum Veturia mater, et Volumnia uxor Coriolanum infesto Volscorum agmine venientem ab urbe Roma avertissent, Senatus Romanus grati animi ergo vestes purpureas, et aurea segmenta, qui regum vestitus fuit, Romanis matribusfamilias concessit. Valerius Maximus lib. 5. cap. 2.: _Marcium patriam oppugnare conantem, admotoque portis urbis ingenti Volscorum exercitu, funus, ac tenebras Romano imperio minitantem Veturia mater, ac Volumnia uxor nefarium opus exsequi precibus suis passae non sunt. In quarum honorem senatus matronarum ordinem benignissimis decretis adornavit. Sanxit namque, ut feminis semita viri cederent, confessus plus salutis Reipublicae in stola, quam in armis fuisse: vetustisque aurium insignibus novum vittae discrimen adjecit: permisit quoque his purpurea veste, et aureis uti segmentis._ Idem lib. 2. cap. 1.: _Vini usus olim Romanis feminis ignotus fuit... Ceterum indulgentibus maritis et auro abundanti, et multa purpura usae sunt._
+
+Anno 537. Q. Fabio, T. Sempronio Coss. cum privatorum census in aerarium Reipublicae bello Punico secundo exhaustae conferendi essent, non vero in muliebrem luxuriam effundendi, Lex Oppia lata est, quae feminis Romanis tantum, non viris, purpurae usum prohiberet. Cap. 27. de hac re verba fecimus.
+
+Anno 546. Marcellus de captis Syracusis triumphans immensam vim pretiosae regiae vestis Romam advexit, quae regia vestis procul dubio purpurea fuit. Livius lib. 6. cap. 17. dec. 3.: _Pacis diuturnae, regiaeque opulentiae ornamenta, argenti, aerisque fabrefacta vasa, et alia supellex, pretiosaque vestis, et multa nobilia signa._ Jamdiu vero antiquae rei peritis innotuit, hanc pretiosam vestem a Quaestoribus post triumphum vendi, pretiumque retractum ad aerarium referri consuevisse. Jam vero hasce purpureas vestes nec Quaestores vendituros, nec ullos homines redempturos fuisse constat, nisi purpurarum usus Romae promiscuus fuisset.
+
+Anno 555. M. Porcio Catone, L. Valerio Flacco Coss. lex Oppia abrogata est, et feminae Romanae jus purpurae, et auri, quo prius usae erant, recuperarunt. Videatur caput 27., quod memoravimus.
+
+Anno 572. Manlius de Asia triumphavit, majoremque purpureae vestis copiam Romam detulit. Id queritur Livius lib. 9. cap. 5. dec. 4.: _Luxuriae peregrinae origo ab exercitu Asiatico invecta in urbem est. Ii primum lectos aeratos, vestem stragulam pretiosam, plagulas, et alta textilia, et quae tum magnificae supellectiles habebantur... Romam advexerunt._ Hae quoque autem purpureae vestes Romae ad hastam venditae, et distributae fuerunt.
+
+Ita quoque ceteris omnibus Romanorum triumphis usuvenit. Vestes purpureae gentium omnium Romam in hisce triumphis omnes transductae, omnesque Romae venumdatae fuerunt.
+
+Cum vestes itaque purpureae tot triumphis Romae cumularentur, immensum purpurarum luxum ultimis reipublicae temporibus Romae extitisse necesse fuit. Plurima hinc hujus luxus testimonia apud antiquos scriptores legimus, eorumque etiam in eum luxum querelas. Vicem omnium praestet Valerius Maximus lib. 9. cap. 1., qui inter cetera exempla indignans refert, Metellum Pium in Hispania cum Sertorio bellum gerentem, purpureis stragulis coenacula, seipsum discumbentem palmata tunica operuisse, quae triumphantium propria, nec non etiam Plutarchus, et Dion narrantes, Paullum Aemilium, C. Marium, et Gn. Pompeium ipsas triumphales, et regias vestes non in triumphis tantum, sed etiam omnibus ludorum diebus induisse.
+
+Hactenus Romani omnium fere gentium purpuras, non tamen Tyrias, et Sidonias, quae splendidissimae essent, Phoenice nondum subacta, viderant. Anno urbis conditae 700. Cicerone Consule, cum Gn. Pompeius Phoenicen, finitimasque regiones omnes Mithridaticae victoriae impetu subegisset, primus etiam Tyrias purpuras in triumphum detulisse debuit. Et revera nos legimus, eodem anno Lentulum Spintherem Tyria purpura primum Romae usum. Plinius lib. 9. cap. 39.: _Nepos Cornelius, qui Divi Augusti principatu obiit, me, inquit, juvene violacea purpura vigebat... nec multo post rubra Tarentina. Huic successit dibapha Tyria... Hac P. Lentulus Spinther Aedilis Curulis primus in praetexta usus improbatur, qua purpura quis non jam, inquit, triclinaria facit? Spinther Aedilis fuit urbis conditae anno septingentesimo, Cicerone Consule. Dibapha tunc dicebatur, quae bis tincta esset, veluti magnifico impendio, qualiter nunc omnes pene commodiores purpurae tinguntur._
+
+## Caput 54.
+
+_De usu purpurarum a Julio Caesare ad M. Aurelium_
+
+Imperii autem tempore Romani Imperatores regum exterorum ambitiosa exempla secuturi, sibi suisque Praefectis reservare, privatisque omnibus prohibere purpuras paullatim coeperunt. Atque ut ab initio ordiamur, en ipsum C. Julium Caesarem in purpuras primum irruentem videmus. Ille vetuit conchyliatas purpuras, quas caeruleas, et flavas fuisse vidimus, easdem unis mulieribus concedens, quae viro, natisque orbae, neque quinquagesimo quinto aetatis anno majores essent. Svetonius in ejus Vita: _Lecticarum usum, item conchyliatae vestis, et margaritarum, nisi certis personis, et aetatibus, perque certos dies ademit._ Clariusque Eusebius ait in Chronico, Dictatorem Caesarem purpuras concessisse _mulieribus illis, quae nec viros, nec liberos haberent, et minores essent annis 55._
+
+Idem vero Dictator Caesar regiae dignitatis non modo auctoritatem, sed etiam insignia comparaturus curavit, primo vestes regias triumphales omnibus ludis sibi a Senatu decerni. Dion lib. 43. Την σπολην την επινικιον εν πασαις ταις πανεγυρησι κατα δογμα ενεδυετο. _Vestem triumphalem omnibus ludis ex decreto gestavit._ Deinde easdem sibi decerni curavit cunctis diebus, quibus sacra faceret. Appianus Alexandrinus lib. 2. bellorum civilium: Και θυειν μεν αυτον αιει θριαμβικως ημφιεσμενον. _Permisit eum sacra facere triumphali veste indutum._ Hinc tandem semper sibi easdem decerni curavit. Dion lib. 44.: φερεσθαι τε αυτον αει και εν αυτη τη πολει την στολην την επινικιον ενδεδυκοτα. _Permisit Senatus eum ferre semper etiam in ipsa urbe vestes triumphales._ Hinc Dion ipse eodem loco Caesarem in Lupercalibus regia triumphali veste magnifice indutum describit: Εσθητι τη βασιλικη κεκοσμενος, και τω στεφανω τω διαχρυσω λαμπρυνομενος επι τον διφρον τον κεχρισομενον εκαθιζετο. _Ante rostra in aurea sella, regia veste ornatus, aureaque corona sedebat._
+
+Caesar Augustus quoque ad unos magistratus purpuras cohibuit. Dion lib. 49.: Την τε εσθητα την αλουργη μηδενα αλλον εξω των βουλευτων εν ταις αρχαις οντων ενδυεσθαι εκελευσεν. ηδη γαρ τινες και των τυχοντων αυτη εχροντο. _Imperavit deinde_ (Augustus) _neminem alium induere vestem purpuream praeter Senatores, cum in magistratibus essent. Nonnulli enim etiam minorum gentium veste purpurea utebantur._ Ipse tamen Augustus vestes regias triumphales singulis Januariis Calendis sibi concedi curavit juxta Dionem lib. 53.
+
+Tiberius non lege, sed exemplo vetandas purpuras astute, ut semper, putavit. Dion lib. 57.: Και επειδη γε πολλη εσθητι αλουργει και ανδρες συχνοι (καιπερ απαγορευθεν προτερον) εχρωντο, διεμεμψατο μεν ουδενα, ουδε εζημιωσεν. υετου δε εν πανηγυρει τινι γενομενου, φαιαν μανδυην επενεδυ. Και τουτου ουκετ ουδεις αυτων αλλοιον εσθημα λαβειν ετολμησε. _Et cum multi vestem purpuream ferrent, etsi id jam ante vetitum fuerat,_ (nimirum ab Augusto, uti observavimus) _Tiberius neminem accusavit, aut offendit. Cum autem quibusdam ludis pluvia facta esset, Tiberius ipse nigram vestem induit. Ex eo vero die nemo alia veste uti ausus est._
+
+Caligulam purpurarum interdictum instaurasse non legimus, licet triumphali ornatu et ipse saepius Romae uteretur juxta Dionem lib. 59., et Svetonium in ejus Vita.
+
+Nero purpuras Tyrias, et amethystinas tantum prohibendas, uti pretiosiores, putavit. Svetonius in ejus Vita: _Et cum interdixisset usum amethystini, et Tyrii coloris, submisissetque qui nundinarum die pauculas uncias venderet, praeclusit cunctos negotiatores. Quin etiam inter canendum animadversam matronam e spectaculis vetita purpura cultam, demonstrasse procuratoribus suis creditur, detractamque illico non veste modo, sed et bonis exsuit._ Non tamen ille non meminit saepius vestem regiam triumphalem sibi a Senatu decerni. Ita hac indutus est, Parthis a Corbulone fugatis, juxta Tacitum lib. 2. Annalium. Hac etiam indutus Tyridatem accepit juxta Dionem 63. Hac denique indutus ludos semper spectavit, juxta eumdem Tacitum lib. 12. cap. 41.
+
+Nerone mortuo libertas purpurarum restituta est. Vespasiani, Titi, Domitiani temporibus communes fuisse purpuras, Martialis, et Juvenalis carmina, qui coaevi fuerunt, id significant. Plura hujusmodi carmina per hunc librum jacent, quae consulantur.
+
+Eadem Trajani temporibus libertas obtinuit. Plinius aequalis tempore id satis superque declarat. Locum unum illius, et alterum proferemus. Ita ille lib. 9. cap. 35. _Huic_ (purpurae) _fasces securesque Romanae viam faciunt, itidemque pro majestate pueritiae est. Distinguit ab equite curiam, Diis advocatur placandis, omnemque vestem illuminat: in triumphali miscetur auro. Quapropter excusata et purpurae sit insania._ Idemque lib. 9. cap. 41. absoluta purpureae tincturae descriptione concludit: _Abunde tractata est ratio, qua se virorum juxta, feminarumque forma credit amplissimam fieri._
+
+Hadrianus quoque a purpuris vetandis abstinuit. Reperimus tantum eumdem indutum imperatoria chlamyde coccinea auro, et purpurea clavata, L. Vero Caesari coccineam chlamydem purpura tantum, non regio auro clavatam concessisse. Repetatur epistola Commodi ad rebellem Albinum, quam cap. 42. exhibuimus. Reperimus quoque eumdem Hadrianum supellectilem omnem, stragulasque vestes purpureas auro vel clavatas, vel pictas more regio in imperatoriam domum primum invexisse. Lampridius in Alexandri Vita eumdem, ait, adhibuisse _pura mantilia saepius cocco clavata, aurata vero numquam, cum haec Elagabalus jam recepisset, et ante (ut quidam praedicant) Hadrianus._
 
 ...
 
