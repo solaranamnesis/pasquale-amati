@@ -1548,7 +1548,7 @@ Narrat Ovidius Metamorphoseon lib. 6. Idmonem Arachnes patrem, purpurarium artif
 
 _pater huic_ (Arachne) _Colophonius Idmon_  
 _Phocaico bibulas tingebat murice lanas..._  
-Illic et Tyrium quae purpura sensit ahenum_  
+_Illic et Tyrium quae purpura sensit ahenum_  
 _Texitur._
 
 Et Troes, et Graios principes in Trojano bello purpura insignes saepius nobis describit Homerus. Siquidem Odyss. 4. vers. 115. ubi describit Telemachum lugentem, cum patrem audisset commemorari, ait ipsum χλαιναν πορφυρεην, _vestem purpuream_, dignam regio puero obtendisse oculis utraque manu, quod repetit inferius vers. 154. ut nunc parcam πορφυρεοις πεπλοισι _purpureis peplis_, quibus ossa Hectoris in auruem loculum reponenda contegerentur Iliad. 24. vers. 796., atque etiam praeteream ρηγεα καλα πορφυρεα _stragula pulcra purpurea_, quae Argiva Helena ancillis praecepit iniicere cubilibus. Odyss. 4. Vers. 298.
