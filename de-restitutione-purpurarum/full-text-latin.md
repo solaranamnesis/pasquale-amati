@@ -1781,6 +1781,50 @@ Plurimos vero scriptores ecclesiasticos quos cap. 33. retulimus, qui omnes circa
 
 ## Caput 60.
 
+_De usu purpurarum a decimo saeculo ad imperii orientalis ruinam._
+
+Tancmarus presbyter, qui circa annum M. vixisse fertur, ab eodem Muratorio in memorata dissertatione relatus, in cap. 27.: Vitae B. Bernwardi, purpurarum meminit, quae apud Romanam aulam adhuc in honore essent, et vigerent: _Equis apostolica sella Romano more ostro instratis._ Jam vero hic monendum, ostri nomine nequaquam intelligendum colorem coccineum, uti vulgi error fert, sed purpuram violaceam, aut rubidam, quae a coccineo colore plurimum differret, uti praesertim cap. 19. confirmavimus.
+
+Penes Theobaldum S. Liberatoris Abbatem, qui circa annum 1019. vixit, ab eodem Muratorio ibidem relatum, commemorantur _duae scaramangiae, una diarodina_, (rosacei, aut coccinei coloris) _et una purpurea_.
+
+Testante Niceta Choniate lib. 3. n. 5. Imperator Isaacus, qui circa annum 1057. rerum apud Graecos est potitus, suis etiam praecipuis ministris scribendi purpureo cinnabari facultatem concessit.
+
+B. Petrus Damianus, qui circa annum 1058. floruit, opusc. 31. cap. 6. refert purpuras suis temporibus despectas, vestes vero variis herbarum coloribus fucatas in majori pretio fuisse: _Regalis itaque purpura, quia unicolor est, vilipenditur. Pallia vero diversis fucata nitoribus ad sublimis lectuli deputantur ornatum._ Mirum hic certe videri possit, purpuras illas tot eximiis dotibus ornatas, antiquis populis, et principibus adeo prae ceteris coloribus expetitas, tot laudibus ab antiquis scriptoribus cumulatas, tanto sequioribus hisce temporibus despectui fuisse, ut illis viliores herbarum colores anteponerentur. Triplex autem mutationis hujusce caussa esse potuit, quarum prima pretii magnitudo, secunda vero difficultas ex Constantinopolitanis officinis purpuras repetendi, quae unae tunc in orbe terrarum haberentur, tertia denique ipsarum purpurarum Byzantinarum turpitudo fuit. Jam enim constat Thraciam, in qua Constantinopolis, fere uti Pontum, ad septemtrionem vergere. Vidimus autem cap. 20., in Ponto ceterisque hujusmodi regionibus ad septemtrionem positis purpuram nigram, aut lividam tantum educi potuisse. Byzantinas igitur, aut Thracias hasce purpuras, nigras aut lividas potius quam rubidas, aut violaceas fuisse oportuit. Cum igitur inamoeni illi colores nigri, aut lividi, quibus unis tunc temporis purpurae tingerentur, nihil fere oculos delectarent, factum est, ut occidentales populi Byzantinae purpurae aut rariori, aut obscuriori vividiores colores licet herbis factos anteponere inciperent, ita tamen ut non uno colore, sed pluribus vestes tingerent, atque ita amissae purpurae admirabilem illam coruscationem, et versicolorem varietatem, varietate ipsa fixorum colorum pensarent. Mos hujusmodi vero vestes pluribus coloribus in speciem tingendi, ut purpurarum, inquam, splendorem varietate colorum aequarent, medio aevo plurimum percrebuit, ut eorum temporum historiae docent, mosque ipse in servorum publicorum, et privatorum, Helvetiorum satellitum, militumque vestibus etiam adhuc superest, et perseverat.
+
+Anna Comnena lib. 3. Alexiados fidem facit, Imperatorem Alexium ipsius Annae patrem muneri dare solitum εκατον βλαττια _centum purpureas vestes_ singulis annis Henrico Germanorum Imperatori, qui circa annum 1100. vivebat.
+
+Nicetas Choniates lib. 1. historiae refert, Alexium ipsum purpureis calceis inductis Imperatorem renunciatum.
+
+Nicephorus Gregoras in sua historia idem usuvenisse memorat, cum Irene Imperatrix renunciaretur.
+
+Idem Nicetas Choniates ipso lib. 1. de gestis Emmanuelis, nec non Georgius Logotheta in Constantinopolitano Chronico ajunt, Graecos Imperatores eo adhuc tempore purpureo enchausto scribere epistolas perseverasse. Novellae siquidem editae Emmanuelis Comneni, qui anno 1148. Imperator electus, easdem omnes cinnabari scriptas in calce testantur. Emmanuelis ejusdem, nec non Johannis Comneni duae, vel tres Graecae epistolae ad Romanum Pontificem purpureo cinnabari expressae in subnotationibus habentur, servanturque adhuc in Chartophylacio Arcis Hadrianae, nunc S. Angeli Romae, quas edendas parat Cl. Vir Johannes Christophorus Amadutius amicus affinis, et popularis meus ad calcem operum ex Graeco vernaculo idiomate Demetrii Pepani Chii, quae nunc praelum habet.
+
+Georgius Logotheta in eodem Chronico narrat, Pelagium Pontificis Innocentii 3. Legatum, purpurea, nimirum violacea, aut rubida veste indutum, Constantinopolim, ubi tum Latini rerum potirentur, introiisse triumphantem.
+
+Rolandinus Patavinus, a Muratorio eodem loco relatus lib. 1. cap. 13 sui Chronici ad annum 1214. memorat coccineos, et purpureos colores tamquam suis temporibus in occidente adhuc a mercatoribus advectos, et usitatos, _purpuris, scarlatis._
+
+Duo diplomata Balduini 2. Imp. C. Politani data annis 1247., et 1248., et purpureis litteris scripta in Archivo Regis Christianissimi adservari Odo Cluniacensis in Vita Burchardi Comitis Corbol. adfirmat.
+
+Michael Palaeologus, qui anno 1259. Imperator factus, Andronico imperii collegae purpureas litteras adhibendi potestatem fecit, uti ait Pachimeres lib. 4. cap. 29., et Gregoras lib. 4.
+
+Epistolas purpureis litteris ductas, ab Andronico Palaeologo seniore ad Carolum Pulchrum Regem, et ad Benedictum de Cumis Dominicanum anno 1328. datas in eodem Archivo Regis Christianissimi adservari idem Odo in eadem vita Burchardi Comitis nobis fidem facit.
+
+Litteras purpureas a Johanne Palaeologo scriptas se quoque accepisse testatur Gregorius 11. apud Wadingium anno 1375.
+
+Johannes Cantacuzenus lib. 1. historiae narrat, Andronicum juniorem dia. demate, et purpura ab Episcopis consecrata ornatum, cum anno 1386. Imperator crearetur. και την πορφυραν, και το διαδημα ενδιδυσκουσι προτερον των αρχιερεων ευλογουντων αυτα. _Induunt eum purpura, et diademate prius per Episcopos sacratis._
+
+Codinus Curopalates, qui circa annum 1440., nimirum circa ipsam Graeci imperii ruinam floruit, cap. 2. et. 4. sui libri de Officiis Aulae, et Ecclesiae Constantinopolitanae nuncupat καββαδιον βλατινον _pileum purpureum_, το συρμα βλατιον, _syrma purpureum_, tamquam ornamenta, quibus ejusdem aulae ministri adhuc uterentur.
+
+Anno demum 1453. Byzantium captum, imperium Graecum deletum, purpuraria ars cum ceteris omnibus a Turcis pessumdata, et extincta.
+
+Anno autem 1464. nimirum 11. post deletum Graecum imperium annis Paullus 2. Romanus Pontifex vestes coccineas S. R. E. Cardinalibus, sibique constanter constituit. Jam enim purpurae cum Graeco ipso imperio penitus interierant, cogebanturque Romani, et Latini Praesules, violaceos, aut rubidos purpureos colores herbis simulare, qui mos adhuc apud eosdem perseverat. Cum igitur coccineus color, qui adhuc vigebat, et viget, multo floridior violaceo herbis confecto colore videretur, factum est, ut Romani Pontifices coccineam floridiorem vestem sibi, et Cardinalibus constituerent, quo sua, et Cardinalium ipsorum dignitas majore coloris discrimine a ceteris Praesulibus notaretur. Hinc hodie S. R. E. Cardinales coccinati, reliqui Romani, et Latini Praesules adhuc purpurei, sed inamoena violacea purpura terrestri, aut herbis, et vegetabilibus confecta induit, antiquae violaceae purpurae, qua antiquitus induebantur, obsoletum morem secuturi.
+
+Satis igitur constat, nobilissimum purpurarum artificium licet satis deformatum et languens in Graeco imperio usque ad annum 1450., ejusdemque imperii ruinam percrebuisse, quo tempore Constantinopoli inauditis caedibus, et incendiis a Turcis vastata, uti nos docent historiae, purpurarum Byzantinarum, quae unae superfuerant, et artifices, et artificium eadem caede implicitos foede interiisse est putandum. Qui purpurarum interitus profecto non evenisset, nisi Romani, aut Graeci Imperatores superbi animi ergo, purpura privatis omnibus vetita, et sibi suisque ducibus servata, purpurarias officinas, quae plurimae quondam fuerant, ad paucas imperiales officinas primum, deinde ad unam Tyriam, mox ad unam Byzantinam redegissent. Quo certe factum est, ut Tyria officina a Saracenis, Byzantina a Turcis deleta, Europeae gentes, barbarie discussa, plurimis artibus restitutis, hanc omnium fere nobilissimam restituere nequiverint, quemadmodum alterum coloris coccinei artificium fere servaverunt, quod a Romanis Imperatoribus numquam vetitum fuisset, et quemadmodum etiam nobilissimam serici artem restituerunt, et ipsam quidem a Graecis Imperatoribus tectam, custodibusque, ne evulgaretur, vallatam, sed vi, bello, et armis per Rogerium Siciliae regem anno 1138. ex Graecia in Italiam cum artificibus transductam, uti a medii aevi historiis omnibus comperimus.
+
+Ut igitur purpurarum historiam enucleantes repetamus, satis constat nobilissimum hoc prae ceteris tincturae genus ante Moysis tempora apud Asiaticos repertum, apud antiquas omnes nationes statim evulgatum, carissimumque habitum, perpetuo fere privatis vetitum, regibusque dicatum, a Theodosii magni tempore perpetuo privatis abreptum, primum ad paucas imperiales officinas, deinde ad unam Tyriam, mox, ad unam Byzantinam redactum, illa a Saracenis, hac a Turcis extincta, tandem cum Graeco ipso imperio ab eisdem Turcis anno 1453. deleto, lacrymabiliter occisis omnibus Byzantii artificibus occubuisse.
+
+## Caput 61.
+
 ...
 
 ## Appendix de antiqua et nupera Purpura Dissertatio Johannis Baptistae Capellii veneti Pharmacopolae.
