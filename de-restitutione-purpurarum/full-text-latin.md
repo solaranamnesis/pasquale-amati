@@ -148,7 +148,15 @@
 
 ## [Caput 58.]()
 
-...
+## [Caput 59.]()
+
+## [Caput 60.]()
+
+## [Caput 61.]()
+
+## [Caput 62.]()
+
+## [Caput 63.]()
 
 ## [Appendix de antiqua et nupera Purpura Dissertatio Johannis Baptistae Capellii veneti pharmacopolae.]()
 
