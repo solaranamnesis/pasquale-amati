@@ -1921,7 +1921,7 @@ Ita, hae leges omnes si serventur, nobilissimas purpuras certissimo postliminio 
 
 _Adjecta Pharmaceutico Chimico ejusdem auctoris Lexico Venetiis anno 1775. typis impresso._*
 
-Non dubito fore plerosque, qui rem minus utilem me facturum judicent, si hanc de marina Purpura scriptionem instituero, cujus purpurae vel in rerum naturalium, vel in artium deperditarum historia tantula monumenta supersunt. Sed si humanorum temporum vicissitudines novas artes inducere, hujusce vero nobilissimi coloris usum extinguere potuerunt, non tamen jactura ejusdem purpurae est omnino conclamanda, utpote quam in eum locum restitutum iri adhuc sit spes, quem ab heroicis temporibus ad sextum usque seculum Christianae Epochae cum ingenti gloria obtinuisse scimus.* (_Horat. art. poet.)
+Non dubito fore plerosque, qui rem minus utilem me facturum judicent, si hanc de marina Purpura scriptionem instituero, cujus purpurae vel in rerum naturalium, vel in artium deperditarum historia tantula monumenta supersunt. Sed si humanorum temporum vicissitudines novas artes inducere, hujusce vero nobilissimi coloris usum extinguere potuerunt, non tamen jactura ejusdem purpurae est omnino conclamanda, utpote quam in eum locum restitutum iri adhuc sit spes, quem ab heroicis temporibus ad sextum usque seculum Christianae Epochae cum ingenti gloria obtinuisse scimus.* (_Horat. art. poet._)
 
 _Multa renascentur, quae jam cecidere, cadentque_  
 _Quae nunc sunt in honore._
