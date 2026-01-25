@@ -92,71 +92,71 @@
 
 ## [Caput 30.](#caput-30-1)
 
-## [Caput 31.]()
+## [Caput 31.](#caput-31-1)
 
-## [Caput 32.]()
+## [Caput 32.](#caput-32-1)
 
-## [Caput 33.]()
+## [Caput 33.](#caput-33-1)
 
-## [Caput 34.]()
+## [Caput 34.](#caput-34-1)
 
-## [Caput 35.]()
+## [Caput 35.](#caput-35-1)
 
-## [Caput 36.]()
+## [Caput 36.](#caput-36-1)
 
-## [Caput 37.]()
+## [Caput 37.](#caput-37-1)
 
-## [Caput 38.]()
+## [Caput 38.](#caput-38-1)
 
-## [Caput 39.]()
+## [Caput 39.](#caput-39-1)
 
-## [Caput 40.]()
+## [Caput 40.](#caput-40-1)
 
-## [Caput 41.]()
+## [Caput 41.](#caput-41-1)
 
-## [Caput 42.]()
+## [Caput 42.](#caput-42-1)
 
-## [Caput 43.]()
+## [Caput 43.](#caput-43-1)
 
-## [Caput 44.]()
+## [Caput 44.](#caput-44-1)
 
-## [Caput 45.]()
+## [Caput 45.](#caput-45-1)
 
-## [Caput 46.]()
+## [Caput 46.](#caput-46-1)
 
-## [Caput 47.]()
+## [Caput 47.](#caput-47-1)
 
-## [Caput 48.]()
+## [Caput 48.](#caput-48-1)
 
-## [Caput 49.]()
+## [Caput 49.](#caput-49-1)
 
-## [Caput 50.]()
+## [Caput 50.](#caput-50-1)
 
-## [Caput 51.]()
+## [Caput 51.](#caput-51-1)
 
-## [Caput 52.]()
+## [Caput 52.](#caput-52-1)
 
-## [Caput 53.]()
+## [Caput 53.](#caput-53-1)
 
-## [Caput 54.]()
+## [Caput 54.](#caput-54-1)
 
-## [Caput 55.]()
+## [Caput 55.](#caput-55-1)
 
-## [Caput 56.]()
+## [Caput 56.](#caput-56-1)
 
-## [Caput 57.]()
+## [Caput 57.](#caput-57-1)
 
-## [Caput 58.]()
+## [Caput 58.](#caput-58-1)
 
-## [Caput 59.]()
+## [Caput 59.](#caput-59-1)
 
-## [Caput 60.]()
+## [Caput 60.](#caput-60-1)
 
-## [Caput 61.]()
+## [Caput 61.](#caput-61-1)
 
-## [Caput 62.]()
+## [Caput 62.](#caput-62-1)
 
-## [Caput 63.]()
+## [Caput 63.](#caput-63-1)
 
 ## [Appendix de antiqua et nupera Purpura Dissertatio Johannis Baptistae Capellii veneti pharmacopolae.]()
 
