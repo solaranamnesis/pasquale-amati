@@ -36,127 +36,127 @@
 
 ## [Caput 2.](#caput-2) De Colore simplici purpureo nigro.
 
-## [Caput 3.](#caput-3-1)
+## [Caput 3.](#caput-3) De Colore simplici purpureo livido.
 
-## [Caput 4.](#caput-4-1)
+## [Caput 4.](#caput-4) De Colore simplici purpureo violaceo.
 
-## [Caput 5.](#caput-5-1)
+## [Caput 5.](#caput-5) De colore simplici purpureo rubido Tyrio.
 
-## [Caput 6.](#caput-6-1)
+## [Caput 6.](#caput-6) De Colore simplici purpureo caeruleo saturatiore, sive hyacinthino.
 
-## [Caput 7.](#caput-7-1)
+## [Caput 7.](#caput-7) De Colore simplici purpureo caeruleo dilutiore, sive molochino.
 
-## [Caput 8.](#caput-8-1)
+## [Caput 8.](#caput-8) De Colore simplici purpureo flavo.
 
-## [Caput 9.](#caput-9-1)
+## [Caput 9.](#caput-9) De Colore simplici purpureo rubicundo.
 
-## [Caput 10.](#caput-10-1)
+## [Caput 10.](#caput-10) De Colore simplici purpureo candido.
 
-## [Caput 11.](#caput-11-1)
+## [Caput 11.](#caput-11) De Coloribus simplicibus purpureis generatim.
 
-## [Caput 12.](#caput-12-1)
+## [Caput 12.](#caput-12) De divisione Colorum simplicium purpureorum.
 
-## [Caput 13.](#caput-13-1)
+## [Caput 13.](#caput-13) De coloribus purpureis mixtis.
 
-## [Caput 14.](#caput-14-1)
+## [Caput 14.](#caput-14) De Ostro.
 
-## [Caput 15.](#caput-15-1)
+## [Caput 15.](#caput-15) De coloribus herbaceis.
 
-## [Caput 16.](#caput-16-1)
+## [Caput 16.](#caput-16) De Colore coccineo.
 
-## [Caput 17.](#caput-17-1)
+## [Caput 17.](#caput-17) De Colore puniceo, aut phoeniceo.
 
-## [Caput 18.](#caput-18-1)
+## [Caput 18.](#caput-18) De Colore Blatteo, vel Blattae.
 
-## [Caput 19.](#caput-19-1)
+## [Caput 19.](#caput-19) De discrimine Coloris coccinei, et purpureorum.
 
-## [Caput 20.](#caput-20-1)
+## [Caput 20.](#caput-20) De prima Caussa tot colorum purpureorum.
 
-## [Caput 21.](#caput-21-1)
+## [Caput 21.](#caput-21) De secunda Caussa tot colorum purpureorum.
 
-## [Caput 22.](#caput-22-1)
+## [Caput 22.](#caput-22) De Conchis purpurariis.
 
-## [Caput 23.](#caput-23-1)
+## [Caput 23.](#caput-23) De piscatione concharum purpurariarum.
 
-## [Caput 24.](#caput-24-1)
+## [Caput 24.](#caput-24) De praeparatione concharum purpurariarum.
 
-## [Caput 25.](#caput-25-1)
+## [Caput 25.](#caput-25) De tinctura colorum purpureorum.
 
-## [Caput 26.](#caput-26-1)
+## [Caput 26.](#caput-26) De foetore purpurarum, et Purpurariis.
 
-## [Caput 27.](#caput-27-1)
+## [Caput 27.](#caput-27) De mutatione versicolori colorum purpureorum.
 
-## [Caput 28.](#caput-28-1)
+## [Caput 28.](#caput-28) De splendore colorum purpureorum.
 
-## [Caput 29.](#caput-29-1)
+## [Caput 29.](#caput-29) De immortalitate colorum purpureorum.
 
-## [Caput 30.](#caput-30-1)
+## [Caput 30.](#caput-30) De mollitie colorum purpureorum.
 
-## [Caput 31.](#caput-31-1)
+## [Caput 31.](#caput-31) De materia vestium purpurearum.
 
-## [Caput 32.](#caput-32-1)
+## [Caput 32.](#caput-32) De discrimine vestium purpurearum.
 
-## [Caput 33.](#caput-33-1)
+## [Caput 33.](#caput-33) De clavis purpureis.
 
-## [Caput 34.](#caput-34-1)
+## [Caput 34.](#caput-34) De limbis purpureis.
 
-## [Caput 35.](#caput-35-1)
+## [Caput 35.](#caput-35) De clavis, et limbis aureis.
 
-## [Caput 36.](#caput-36-1)
+## [Caput 36.](#caput-36) De clavis, et limbis candidis, et coccineis.
 
-## [Caput 37.](#caput-37-1)
+## [Caput 37.](#caput-37) De vestibus pictis.
 
-## [Caput 38.](#caput-38-1)
+## [Caput 38.](#caput-38) De ratione ornandi vestes clavis, aut picturis.
 
-## [Caput 39.](#caput-39-1)
+## [Caput 39.](#caput-39) De tunica laticlavia.
 
-## [Caput 40.](#caput-40-1)
+## [Caput 40.](#caput-40) De tunica angusticlavia.
 
-## [Caput 41.](#caput-41-1)
+## [Caput 41.](#caput-41) De praetexta, et trabea.
 
-## [Caput 42.](#caput-42-1)
+## [Caput 42.](#caput-42) De chlamyde, aut paludamento.
 
-## [Caput 43.](#caput-43-1)
+## [Caput 43.](#caput-43) De tunica palmata, et toga picta.
 
-## [Caput 44.](#caput-44-1)
+## [Caput 44.](#caput-44) De calceis.
 
-## [Caput 45.](#caput-45-1)
+## [Caput 45.](#caput-45) De vestibus, et vexillis militum.
 
-## [Caput 46.](#caput-46-1)
+## [Caput 46.](#caput-46) De vestibus muliebribus, et stragulis.
 
-## [Caput 47.](#caput-47-1)
+## [Caput 47.](#caput-47) De signis Deorum, encausto, et picturis purpureis.
 
-## [Caput 48.](#caput-48-1)
+## [Caput 48.](#caput-48) De pretio colorum purpureorum.
 
-## [Caput 49.](#caput-49-1)
+## [Caput 49.](#caput-49) De sumptibus in coloribus purpureis condendis.
 
-## [Caput 50.](#caput-50-1)
+## [Caput 50.](#caput-50)
 
-## [Caput 51.](#caput-51-1)
+## [Caput 51.](#caput-51)
 
-## [Caput 52.](#caput-52-1)
+## [Caput 52.](#caput-52)
 
-## [Caput 53.](#caput-53-1)
+## [Caput 53.](#caput-53)
 
-## [Caput 54.](#caput-54-1)
+## [Caput 54.](#caput-54)
 
-## [Caput 55.](#caput-55-1)
+## [Caput 55.](#caput-55)
 
-## [Caput 56.](#caput-56-1)
+## [Caput 56.](#caput-56)
 
-## [Caput 57.](#caput-57-1)
+## [Caput 57.](#caput-57)
 
-## [Caput 58.](#caput-58-1)
+## [Caput 58.](#caput-58)
 
-## [Caput 59.](#caput-59-1)
+## [Caput 59.](#caput-59)
 
-## [Caput 60.](#caput-60-1)
+## [Caput 60.](#caput-60)
 
-## [Caput 61.](#caput-61-1)
+## [Caput 61.](#caput-61)
 
-## [Caput 62.](#caput-62-1)
+## [Caput 62.](#caput-62)
 
-## [Caput 63.](#caput-63-1)
+## [Caput 63.](#caput-63)
 
 ## [Appendix de antiqua et nupera Purpura Dissertatio Johannis Baptistae Capellii veneti pharmacopolae.]()
 
