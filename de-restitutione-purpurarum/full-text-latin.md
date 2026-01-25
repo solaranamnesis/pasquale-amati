@@ -130,33 +130,33 @@
 
 ## [Caput 49.](#caput-49) De sumptibus in coloribus purpureis condendis.
 
-## [Caput 50.](#caput-50)
+## [Caput 50.](#caput-50) De pretio coloris coccinei, et herbaceorum.
 
-## [Caput 51.](#caput-51)
+## [Caput 51.](#caput-51) De inventione purpurarum.
 
-## [Caput 52.](#caput-52)
+## [Caput 52.](#caput-52) De usu purpurarum apud omnes antiquiores nationes, et Romanos usque ad regifugium.
 
-## [Caput 53.](#caput-53)
+## [Caput 53.](#caput-53) De usu purpurarum apud Romanos a regifugio ad Julium Caesarem.
 
-## [Caput 54.](#caput-54)
+## [Caput 54.](#caput-54) De usu purpurarum a Julio Caesare ad M. Aurelium.
 
-## [Caput 55.](#caput-55)
+## [Caput 55.](#caput-55) De usu purpurarum a M. Aurelio ad Theodosium Magnum.
 
-## [Caput 56.](#caput-56)
+## [Caput 56.](#caput-56) De usu purpurarum Gratiani et Theodosii magni temporibus.
 
-## [Caput 57.](#caput-57)
+## [Caput 57.](#caput-57) De usu purpurarum a Theodosio magno ad imperii occidentalis ruinam.
 
-## [Caput 58.](#caput-58)
+## [Caput 58.](#caput-58) De usu purpurarum ab Imperii occidentalis ruina ad Heraclium.
 
-## [Caput 59.](#caput-59)
+## [Caput 59.](#caput-59) De usu purpurarum ab Heraclio ad decimum saeculum.
 
-## [Caput 60.](#caput-60)
+## [Caput 60.](#caput-60) De usu purpurarum a decimo saeculo ad imperii orientalis ruinam.
 
-## [Caput 61.](#caput-61)
+## [Caput 61.](#caput-61) De purpuris, buccinisque nostratibus.
 
-## [Caput 62.](#caput-62)
+## [Caput 62.](#caput-62) De tentata restitutione purpurarum.
 
-## [Caput 63.](#caput-63)
+## [Caput 63.](#caput-63) De vera restitutione purpurarum.
 
 ## [Appendix de antiqua et nupera Purpura Dissertatio Johannis Baptistae Capellii veneti pharmacopolae.]()
 
