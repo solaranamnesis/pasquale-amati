@@ -32,9 +32,9 @@
 
 ---
 
-## [Caput 1.](#caput-1-1)
+## [Caput 1.](#caput-1-1) De duplici tincturae genere apud antiquos, purpureo, et herbaceo.
 
-## [Caput 2.](#caput-2-1)
+## [Caput 2.](#caput-2-1) De Colore simplici purpureo nigro.
 
 ## [Caput 3.](#caput-3-1)
 
