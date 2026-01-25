@@ -198,10 +198,7 @@ Color primus purpureus simplex erat niger. Aristot. Hist. animal. lib. 5. c. 15.
 
 _De Colore simplici purpureo livido._
 
-Color secundus purpureus simplex erat lividus, nimirum niger caeruleo mix- 
-tus. Meminit Vitruvius citato loco. _Progredientibus inter septentrionem, 
-et occidentem invenitur (conchylium) lividum._ Martialis lib. 8. epig. 28. 
-_Te nec Amyclaeo decuit livere veneno._ Statius lib. 1. Silvarum: 
+Color secundus purpureus simplex erat lividus, nimirum niger caeruleo mixtus. Meminit Vitruvius citato loco. _Progredientibus inter septentrionem, et occidentem invenitur (conchylium) lividum._ Martialis lib. 8. epig. 28. _Te nec Amyclaeo decuit livere veneno._ Statius lib. 1. Silvarum: 
 
 &emsp;&emsp;&emsp;&emsp;&emsp;&emsp;_Purpura saepe_  
 _Oebalis, et Tyrii moderator livet aheni._ Horatius lib. 2. Ode 5.  
