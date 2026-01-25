@@ -158,7 +158,7 @@
 
 ## [Caput 63.](#caput-63) De vera restitutione purpurarum.
 
-## [Appendix de antiqua et nupera Purpura Dissertatio Johannis Baptistae Capellii veneti pharmacopolae.]()
+## [Appendix de antiqua et nupera Purpura Dissertatio Johannis Baptistae Capellii veneti pharmacopolae.](#appendix-de-antiqua-et-nupera-purpura-dissertatio-johannis-baptistae-capellii-veneti-pharmacopolae-1)
 
 ---
 
