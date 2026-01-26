@@ -1086,8 +1086,7 @@ Plurimi vero satis esse ducebant, si vestes naturali albo colore donatas nonnull
 
 _De clavis purpureis._
 
-Taeniae autem istae aut vittae purpureae per medias vestes ductae clavi a 
-Latinis dicebantur, quod fere longi clavi viderentur. Horatius lib. 1. Sat. 4.
+Taeniae autem istae aut vittae purpureae per medias vestes ductae clavi a Latinis dicebantur, quod fere longi clavi viderentur. Horatius lib. 1. Sat. 4.
 
 _et latum demisit pectore clavum._
 
